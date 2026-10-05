@@ -32,3 +32,9 @@
 | [64](chuong-64.md) | Mười lăm phút | Tạ Kỳ Phong | 24 tháng Sáu – 7 tháng Bảy |
 | [65](chuong-65.md) | Sợi ruy băng trong túi giày | Ôn Chi Hạ | 15 tháng Bảy |
 | [66](chuong-66.md) | Hiệu thuốc cạnh cổng trường | Tạ Kỳ Phong | 25–28 tháng Bảy |
+| [67](chuong-67.md) | Năm năm, Nguyệt Loan | Ôn Chi Hạ | 1 tháng Chín |
+| [68](chuong-68.md) | Bữa cơm nhà họ Tạ | Tạ Kỳ Phong | 2 tháng Chín |
+| [69](chuong-69.md) | Gương vẫn ở đây | Ôn Chi Hạ | 3 tháng Chín |
+| [70](chuong-70.md) | Ông bố viết chữ như gà bới | Tạ Kỳ Phong | 4 tháng Chín, Giải vô địch quốc gia – vòng loại |
+| [71](chuong-71.md) | Phong bì niêm phong | Ôn Chi Hạ | 5 tháng Chín, bán kết |
+| [72](chuong-72.md) | Bảy giờ sáng ở bờ kè | Tạ Kỳ Phong | 6 tháng Chín, trước chung kết |
