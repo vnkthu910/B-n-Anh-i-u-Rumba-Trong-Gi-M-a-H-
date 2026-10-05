@@ -26,3 +26,7 @@
 | [22](chuong-22.md) | Tấm phim đen trắng | Ôn Chi Hạ | Tháng Chạp – sau Tết, lớp 11 |
 | [23](chuong-23.md) | Bao lâu cũng được | Tạ Kỳ Phong | Tháng 3, lớp 11 |
 | [24](chuong-24.md) | Người đã từng chờ | Ôn Chi Hạ | Tháng 4, lớp 11 |
+| [25](chuong-25.md) | Hộp bánh dừa thứ nhất | Tạ Kỳ Phong | Tháng 5–6, hết lớp 11 (17 tuổi) |
+| [26](chuong-26.md) | Trận chung kết cuối cùng | Ôn Chi Hạ | Giữa tháng 7, Thạch Kiều |
+| [27](chuong-27.md) | Gốc cây phượng thứ ba | Tạ Kỳ Phong | Tuần sau chung kết |
+| [28](chuong-28.md) | Một tuần | Ôn Chi Hạ | Tuần sau chung kết, chuyển lên Sương Lĩnh |
