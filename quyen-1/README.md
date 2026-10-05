@@ -20,3 +20,9 @@
 | [16](chuong-16.md) | Ngã rẽ cuối dốc | Ôn Chi Hạ | Tháng 9, lớp 10 (15 tuổi) |
 | [17](chuong-17.md) | Đêm Trung thu trên sân thượng | Tạ Kỳ Phong | Tháng 9–10, lớp 10 (15 tuổi) |
 | [18](chuong-18.md) | Nhịp Thứ Tư chưa có kết | Ôn Chi Hạ | Tháng 11 lớp 10 – mùa hạ năm 16 tuổi |
+| [19](chuong-19.md) | Vị khách từ Estherwyn | Tạ Kỳ Phong | Tháng 9–10, lớp 11 (16 tuổi) |
+| [20](chuong-20.md) | Hai viên thuốc trắng | Ôn Chi Hạ | Tháng 9–12, lớp 11 |
+| [21](chuong-21.md) | Phong thư màu kem | Tạ Kỳ Phong | Tháng 1 – 27 Tết, lớp 11 |
+| [22](chuong-22.md) | Tấm phim đen trắng | Ôn Chi Hạ | Tháng Chạp – sau Tết, lớp 11 |
+| [23](chuong-23.md) | Bao lâu cũng được | Tạ Kỳ Phong | Tháng 3, lớp 11 |
+| [24](chuong-24.md) | Người đã từng chờ | Ôn Chi Hạ | Tháng 4, lớp 11 |
