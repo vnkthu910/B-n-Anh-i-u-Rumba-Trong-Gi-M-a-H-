@@ -132,11 +132,11 @@ Cô bước tới. Đặt cuốn sổ bìa đen lên đùi cô Tuệ.
 
 Cô Tuệ không mở. Chỉ đặt bàn tay già, gầy, nhiều đường gân lên bìa sổ.
 
-"Cô đọc rồi." Cô Tuệ nói. "Mùng một Tết, lúc hai đứa xông đất xong đi ra bến phà, cô mở ra đọc. Một trăm bốn mươi trang."
+"Cô đọc rồi." Cô Tuệ nói. "Năm năm. Mỗi lần thằng bé viết xong một đoạn kết, nó chụp gửi cô từ Aldmere. Không nhắn gì. Chỉ gửi ảnh. Một trăm bốn mươi trang."
 
-Anh đứng sững.
+Cô quay sang nhìn anh. Anh nhìn xuống sàn gỗ.
 
-"Cô đọc từ trang một." Cô Tuệ nói. "Đến trang một trăm bốn mươi thì dừng. Trang một trăm bốn mươi mốt, cô không đọc."
+"Cô đọc từ trang một." Cô Tuệ nói. "Đến trang một trăm bốn mươi thì hết ảnh. Trang một trăm bốn mươi mốt, nó không gửi."
 
 Cô Tuệ ngẩng lên nhìn cô.
 

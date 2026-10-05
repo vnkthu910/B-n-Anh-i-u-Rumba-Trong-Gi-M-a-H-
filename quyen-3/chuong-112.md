@@ -10,7 +10,7 @@ Cánh hoa phượng nằm trên sàn gỗ giữa hai người.
 
 Anh cúi xuống nhìn nó. Rồi ngẩng lên nhìn cô.
 
-"Năm anh hai mươi tuổi." Anh nói. "Isadora dạy anh từ ấy. Tháng thứ ba anh ở Aldmere. Lúc ấy anh mới biết nói *cảm ơn*, *xin lỗi*, và *nhịp một*."
+"Năm anh mười bảy tuổi." Anh nói. "Isadora dạy anh từ ấy. Tháng thứ ba anh ở Aldmere. Lúc ấy anh mới biết nói *cảm ơn*, *xin lỗi*, và *nhịp một*."
 
 Cô không nói gì.
 
@@ -36,7 +36,7 @@ Anh nhìn cô.
 
 Phòng tập im lặng. Quạt trần quay chậm trên đầu. Ngoài cửa sổ, sóng vỗ vào bờ kè.
 
-"Năm anh hai mươi tuổi." Anh nói. "Isadora dạy anh từ ấy. Anh viết nó lên mặt trong bìa cuốn sổ này. Bằng bút chì. Rồi tẩy đi. Vì anh sợ."
+"Năm ấy." Anh nói. "Isadora dạy anh từ ấy xong, anh viết nó lên mặt trong bìa cuốn sổ này. Bằng bút chì. Rồi tẩy đi. Vì anh sợ."
 
 "Sợ gì?"
 
@@ -213,6 +213,26 @@ Cô nhìn ô cửa sổ tròn rất lâu.
 Anh nghĩ một lúc.
 
 "Chờ hai đứa." Anh nói.
+
+Cô quay lại. Đi ra giữa sân thượng. Đứng ở đúng góc năm mười sáu tuổi cô đứng. Góc bên trái, cạnh chậu hoa giấy.
+
+Anh hiểu. Anh đi sang góc bên phải.
+
+Không có nhạc. Không có trăng.
+
+"Hai." Cô đếm.
+
+Hai người đi về phía nhau. Rumba Walk trên nền xi măng nứt chân chim. Chiếc váy trắng ngà bay trong gió biển. Gặp nhau ở giữa.
+
+Một vòng xoay. Một cái chạm tay. Một nhịp chờ.
+
+Rồi anh giẫm lên chân cô. Cố tình.
+
+Năm mười sáu tuổi, cả sân thượng cười ồ. Bây giờ chỉ có một người cười. Cô cười đến mức phải tựa trán vào ngực anh.
+
+Dưới phố, có tiếng huýt sáo. Mấy cậu thanh niên đi xe máy ngang qua, ngẩng lên nhìn sân thượng nhà văn hóa, nơi có hai người đang đứng ôm nhau dưới đèn đường, một người mặc váy trắng, một người thắt cà vạt lệch.
+
+Anh không buông. Cô cũng không.
 
 Điện thoại anh rung. Em Thu.
 

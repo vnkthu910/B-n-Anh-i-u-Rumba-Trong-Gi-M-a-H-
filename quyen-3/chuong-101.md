@@ -314,6 +314,34 @@ Mẹ anh cũng cười.
 
 Cô quay ra. Anh đứng ở cửa bếp, nhìn hai người. Cô không biết anh đứng đó từ lúc nào.
 
+Ăn cơm xong, bà nội không cho ai dọn mâm.
+
+"Thằng Phong." Bà nội nói. Chỉ đũa ra khoảng sân lát gạch dưới gốc cây hoa giấy. "Hai đứa nhảy cho bà xem một bài. Waltz."
+
+"Bà, tối rồi…"
+
+"Bà tám mươi tư tuổi. Tối nào bà cũng tối." Bà nội nói. "Bố mày, bật cái máy hát."
+
+Bố anh không cãi. Đi vào nhà. Một lúc sau, từ ô cửa sổ phòng khách, tiếng máy hát đĩa than rè rè. Rồi một bản Waltz cũ. Ba phách. Chậm.
+
+Anh đứng dậy. Đưa tay ra.
+
+Cô nhìn bàn tay anh. Rồi nhìn bà nội. Bà nội phẩy quạt giấy, ra hiệu.
+
+Cô đặt tay lên.
+
+Sân gạch không phẳng. Mấy viên gạch kênh lên vì rễ cây hoa giấy. Waltz cần sàn phẳng, cần những bước lướt dài. Ở đây không lướt được. Anh rút ngắn sải chân. Cô theo. Một, hai, ba. Một, hai, ba. Hai người xoay chậm quanh gốc cây, tránh những viên gạch kênh như tránh những cặp nhảy khác trên sàn thi.
+
+Hoa giấy rụng xuống tóc cô.
+
+Hai đứa chưa bao giờ thi Standard. Nhưng năm chín tuổi, trong phòng khách nhà họ Tạ, mẹ anh dạy cả hai đứa bước Waltz cơ bản, bảo dân Latin cũng phải biết đứng khung tay cho đàng hoàng. Khung tay anh vẫn thế. Tay phải đặt dưới bả vai cô. Không ấn. Chỉ đỡ. Như một bức tường để dựa.
+
+Hết bài, bà nội gập quạt lại. Gõ vào lòng bàn tay. Ba cái.
+
+"Được." Bà nói. "Thằng bé xoay vẫn chậm hơn ông nó nửa nhịp."
+
+Mẹ anh ngồi ở bậc thềm, nhìn hai người. Không nói gì. Nhưng cô thấy tay mẹ anh, đặt trên đầu gối, khẽ gõ theo nhịp ba. Một, hai, ba. Đến tận khi bố anh tắt máy hát.
+
 ---
 
 Chín giờ tối.
