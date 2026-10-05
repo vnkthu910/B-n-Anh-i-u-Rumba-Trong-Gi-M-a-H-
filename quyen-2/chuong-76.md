@@ -124,7 +124,7 @@ Bác vặn to đài lên. Bản tin đã chuyển sang bóng đá.
 
 "Về tắm đi." Bác nói. "Tối nay trời trở gió. Bác thấy ô cửa sổ tầng bốn cứ mở toang, con bé ấy lại không biết đóng."
 
-Anh đứng ở cửa phòng bảo vệ một lúc.
+Anh đứng ở cửa phòng bảo vệ một lúc. Nhìn chiếc ô đen dựng ở góc phòng, cán gỗ mòn bóng, nan gãy nẹp băng dính.
 
 Rồi đi về phía nhà tập.
 
