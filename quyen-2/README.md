@@ -38,3 +38,7 @@
 | [70](chuong-70.md) | Ông bố viết chữ như gà bới | Tạ Kỳ Phong | 4 tháng Chín, Giải vô địch quốc gia – vòng loại |
 | [71](chuong-71.md) | Phong bì niêm phong | Ôn Chi Hạ | 5 tháng Chín, bán kết |
 | [72](chuong-72.md) | Bảy giờ sáng ở bờ kè | Tạ Kỳ Phong | 6 tháng Chín, trước chung kết |
+| [73](chuong-73.md) | Rằm tháng Tám | Ôn Chi Hạ | 6 tháng Chín, chung kết – đêm Trung thu |
+| [74](chuong-74.md) | Mười hai tiếng chuông | Tạ Kỳ Phong | Đêm 6 rạng 7 tháng Chín, sinh nhật anh |
+| [75](chuong-75.md) | Hai mươi ba tuổi của anh | Ôn Chi Hạ | 7 tháng Chín |
+| [76](chuong-76.md) | Mình không thể | Tạ Kỳ Phong | 8–9 tháng Chín |
