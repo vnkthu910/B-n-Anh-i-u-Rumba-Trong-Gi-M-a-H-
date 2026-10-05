@@ -168,7 +168,7 @@ Hai người nhảy song song. Cách một cánh tay. Gương mặt hướng v�
 
 Anh chờ.
 
-Nửa nhịp. Như sáu tháng trước. Như năm năm ở Aldmere với Isadora. Như mười sáu năm.
+Nửa nhịp. Như sáu tháng trước. Như năm năm ở Aldmere với Isadora. Như mười bảy năm.
 
 Tay cô đã mở ra. Tay anh vẫn ở đó. Chờ ở nhịp bốn. Nhịp một.
 

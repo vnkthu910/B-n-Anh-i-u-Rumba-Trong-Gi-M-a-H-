@@ -280,7 +280,7 @@ Cô ngẩng lên nhìn anh. Trong vệt sáng vàng từ ô cửa thông gió, �
 
 "Thế anh không thấy..." Cô nói. "Em vô lý à?"
 
-"Có." Anh nói. "Mười sáu năm rồi. Anh quen."
+"Có." Anh nói. "Mười bảy năm rồi. Anh quen."
 
 Cô bật cười. Tiếng cười bị nén lại, rung lên trong ngực anh.
 

@@ -256,7 +256,7 @@ Anh không trả lời ngay.
 
 "Ừ."
 
-"Hôm ấy anh không trả lời được." Anh nói. "Vì mười sáu năm, anh chưa bao giờ nghĩ đến một phương án không có em. Em hỏi, anh như người bị bịt mắt, bảo đi về phía một bức tường không có ở đó."
+"Hôm ấy anh không trả lời được." Anh nói. "Vì mười bảy năm, anh chưa bao giờ nghĩ đến một phương án không có em. Em hỏi, anh như người bị bịt mắt, bảo đi về phía một bức tường không có ở đó."
 
 Anh nhìn xuống sợi ruy băng trên cổ tay mình.
 

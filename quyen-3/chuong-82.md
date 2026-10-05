@@ -144,7 +144,7 @@ Một. Hai. Ba.
 
 Rất khẽ.
 
-Anh không biết vì sao mình làm thế. Như năm mười tuổi, ở bến phà cũ, cô siết tay anh ba lần khi anh đứng cứng đờ nhìn ra khán giả. *Có tớ đây.* Như mười sáu năm nay, mỗi lần trước khi lên sàn.
+Anh không biết vì sao mình làm thế. Như năm mười tuổi, ở bến phà cũ, cô siết tay anh ba lần khi anh đứng cứng đờ nhìn ra khán giả. *Có tớ đây.* Như mười bảy năm nay, mỗi lần trước khi lên sàn.
 
 Anh rút tay về.
 
