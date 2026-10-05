@@ -26,3 +26,9 @@
 | [58](chuong-58.md) | Một nửa | Tạ Kỳ Phong | Đêm 17 tháng Sáu |
 | [59](chuong-59.md) | Bốn năm hay năm năm | Ôn Chi Hạ | 18–19 tháng Sáu |
 | [60](chuong-60.md) | Đêm bão ở phòng tập số ba | Tạ Kỳ Phong | 20–21 tháng Sáu |
+| [61](chuong-61.md) | Cây ngân hạnh thứ bảy | Ôn Chi Hạ | 21 tháng Sáu, sau bão |
+| [62](chuong-62.md) | Hai lần dừa | Tạ Kỳ Phong | 21–22 tháng Sáu |
+| [63](chuong-63.md) | Hai mươi ba tuổi | Ôn Chi Hạ | 23 tháng Sáu, sinh nhật cô |
+| [64](chuong-64.md) | Mười lăm phút | Tạ Kỳ Phong | 24 tháng Sáu – 7 tháng Bảy |
+| [65](chuong-65.md) | Sợi ruy băng trong túi giày | Ôn Chi Hạ | 15 tháng Bảy |
+| [66](chuong-66.md) | Hiệu thuốc cạnh cổng trường | Tạ Kỳ Phong | 25–28 tháng Bảy |
