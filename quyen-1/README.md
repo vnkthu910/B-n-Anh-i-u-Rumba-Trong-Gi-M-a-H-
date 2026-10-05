@@ -15,3 +15,8 @@
 | [11](chuong-11.md) | Con không đổi | Tạ Kỳ Phong | Đầu năm lớp 7 (12 tuổi) |
 | [12](chuong-12.md) | Lời hứa ở bến phà | Ôn Chi Hạ | Lớp 7 (12 tuổi), chính thức ghép đôi |
 | [13](chuong-13.md) | Cạnh nhau và cùng nhau | Tạ Kỳ Phong | Lớp 8 đến mùa hạ (13–14 tuổi) |
+| [14](chuong-14.md) | Tiên đồng – Ngọc nữ | Ôn Chi Hạ | Lớp 9 (14–15 tuổi) |
+| [15](chuong-15.md) | Không cần nhìn | Tạ Kỳ Phong | Tháng 5–7, lớp 9 (14 tuổi) |
+| [16](chuong-16.md) | Ngã rẽ cuối dốc | Ôn Chi Hạ | Tháng 9, lớp 10 (15 tuổi) |
+| [17](chuong-17.md) | Đêm Trung thu trên sân thượng | Tạ Kỳ Phong | Tháng 9–10, lớp 10 (15 tuổi) |
+| [18](chuong-18.md) | Nhịp Thứ Tư chưa có kết | Ôn Chi Hạ | Tháng 11 lớp 10 – mùa hạ năm 16 tuổi |
