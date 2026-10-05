@@ -230,6 +230,46 @@ Không một vết nứt.
 
 ---
 
+Chín giờ tối, bà nội gọi video.
+
+Màn hình rung rung một lúc mới hiện ra gương mặt bà, gần quá, chỉ thấy một con mắt và nửa cái mũi. Bà nội tám mươi mốt tuổi, vẫn chưa học được cách cầm điện thoại cho đúng.
+
+"Bà ơi, bà cầm xa ra một chút."
+
+"Thế này à?" Gương mặt bà lùi ra. Phía sau bà là phòng khách nhà họ Tạ trên đồi Thính Đào, chiếc ghế mây, chiếc ti vi đang chiếu một bộ phim truyền hình nào đó. "Thằng Phong. Mày gầy đi."
+
+"Cháu không gầy đâu bà. Ở Estherwyn cháu ăn khoai tây suốt."
+
+"Khoai tây thì béo gì." Bà nội chép miệng. Rồi bà ghé sát vào màn hình, hạ giọng, như sợ ai nghe thấy. "Thế con bé ấy thế nào?"
+
+Kỳ Phong không trả lời ngay.
+
+"Con bé nhà cô Mai ấy." Bà nội nói. "Bố mày bảo mày với nó lại nhảy với nhau. Nó có khỏe không? Có ăn được không? Ngày xưa nó gầy nhom, bà nhìn mà thương."
+
+"Cô ấy ăn ba bát cơm, bà ạ."
+
+Bà nội nhìn anh qua màn hình một lúc lâu. Rồi bà cười, nếp nhăn ở khóe mắt xếp lại như cánh quạt giấy.
+
+"Ba bát à. Thế thì tốt." Bà nói. "Thế mày có nói chuyện với nó chưa?"
+
+"Chưa ạ."
+
+"Thằng ngốc." Bà nội nói, rất nhẹ nhàng. "Năm sáu tuổi, mày bắt bà leo ba tầng cầu thang để mày được giơ tay đòi nhảy với nó. Bây giờ hai mươi hai tuổi, nó ngồi ngay trước mặt mày ăn ba bát cơm, mày không mở miệng được một câu."
+
+"Bà ơi..."
+
+"Bà già rồi, Phong ạ." Bà nội nói. "Bà không biết chuyện ngày xưa là chuyện gì. Bà chỉ biết, có những câu không nói thì sau này hối hận cả đời. Bà có một câu như thế với ông mày. Đến lúc ông đi, bà vẫn chưa nói."
+
+Màn hình rung rung. Bà nội quay đi, lấy vạt áo chấm khóe mắt.
+
+"Thôi. Bà xem phim đây. Tập này con bé bán hoa sắp nhớ ra rồi."
+
+Màn hình tắt.
+
+Kỳ Phong ngồi trên mép giường, nhìn chiếc điện thoại tối đen trong tay rất lâu.
+
+---
+
 Đêm ấy, khi Chu Diệc Thần đã ngủ, Kỳ Phong ngồi dậy.
 
 Anh mở ba lô, lấy ra chiếc túi vải xanh thẫm. Dòng chữ thêu đỏ hơi run, hơi lệch. *Tạ Kỳ Phong.* Chữ Phong bị lệch.

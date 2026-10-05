@@ -140,6 +140,66 @@ Không cười với cô.
 
 ---
 
+Thứ Tư tuần thứ ba, sau buổi giãn cơ buổi sáng, Chi Hạ nhìn thấy Tô Linh ngồi một mình ở góc nhà tập lớn.
+
+Con bé mười hai tuổi, cặp nhảy trẻ nhất đội tuyển, ngồi trên tấm thảm, hai chân duỗi thẳng, một tay chống ra sau, một tay ấn vào chỗ thắt lưng. Rất nhanh. Chỉ một giây. Rồi con bé rụt tay lại, nhìn quanh xem có ai thấy không.
+
+Chi Hạ thấy.
+
+Cô đi tới, ngồi xuống cạnh con bé. Không cúi lưng. Gập ở hông, giữ thẳng cột sống.
+
+"Đau ở đâu?"
+
+Tô Linh giật mình. "Dạ, em không đau đâu ạ."
+
+"Chỗ này à?" Chi Hạ đặt hai ngón tay lên một điểm ở thắt lưng con bé, ấn rất nhẹ.
+
+Tô Linh nhăn mặt.
+
+"Từ bao giờ?"
+
+"Dạ... từ tháng trước ạ. Ở đội trẻ Lam Cảng, thầy em bắt tập uốn lưng mỗi buổi hai mươi lần. Lên đây thì đỡ rồi." Con bé nói nhanh, rồi nhìn Chi Hạ bằng đôi mắt to tròn như mắt nai, đầy vẻ lo sợ. "Chị đừng nói với thầy Nghiêm nhé. Thầy mà biết, thầy cho em nghỉ, em mất suất Kim Diệp mất."
+
+Chi Hạ nhìn con bé.
+
+Mười hai tuổi. Năm năm nữa, mười bảy tuổi.
+
+Cô nhìn thấy chính mình trong đôi mắt ấy. Ở phòng vệ sinh nữ nhà thi đấu Lam Cảng. Hai viên thuốc trắng.
+
+"Tô Linh." Cô nói. "Chị học vật lý trị liệu. Chị chỉ cho em ba bài giãn cơ, tối nào em cũng tập, mười lăm phút. Được không?"
+
+Con bé gật đầu lia lịa.
+
+Chi Hạ chỉ cho con bé. Nằm ngửa, co gối, kéo gối về ngực. Nằm sấp, chống khuỷu tay, chỉ ngửa đến khi thấy căng thì dừng. Quỳ bốn điểm, cong lưng lên như con mèo, rồi hạ xuống.
+
+"Còn một điều nữa." Cô nói, khi con bé đã tập xong.
+
+"Dạ?"
+
+"Em phải nói với thầy Nghiêm."
+
+Tô Linh mở to mắt. "Nhưng chị bảo..."
+
+"Chị không nói." Chi Hạ nói. "Em nói. Tự em nói. Hôm nay. Đau là phải nói, không được giấu. Giấu một tháng thì nghỉ một tuần. Giấu năm tháng thì có thể nghỉ cả đời."
+
+Con bé nhìn cô rất lâu.
+
+"Chị có giấu bao giờ chưa?" Tô Linh hỏi.
+
+Chi Hạ không trả lời.
+
+Cô chỉ đứng dậy, chậm rãi, một tay chống vào sàn, như chị Nhàn dạy.
+
+"Chiều nay, trước buổi tập, em gặp thầy Nghiêm." Cô nói. "Chị sẽ hỏi lại."
+
+Chiều hôm ấy, Tô Linh gặp thầy Nghiêm. Mười phút sau, con bé đi ra, mắt đỏ hoe, nhưng gật đầu với Chi Hạ ở hành lang. Thầy Nghiêm cho con bé giảm cường độ hai tuần, không uốn lưng, gặp bác sĩ đội tuyển.
+
+Không mất suất Kim Diệp.
+
+Chi Hạ đứng ở hành lang, nhìn con bé chạy đi về phía Mạc Thiên Du, kể gì đó, cười.
+
+---
+
 Cuối tuần thứ ba, ban huấn luyện tổ chức buổi đánh giá nội bộ.
 
 Tất cả các cặp Latin nhảy bài Rumba của mình trước toàn đội tuyển. Ba trọng tài là thầy Nghiêm, cô Tố Nga và một trọng tài quốc gia được mời từ liên đoàn. Chấm điểm như thi đấu thật.

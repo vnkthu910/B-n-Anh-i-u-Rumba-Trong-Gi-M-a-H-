@@ -1,5 +1,77 @@
 # Chương 42: Điều bảy
 
+Chiều thứ Tư tuần thứ ba, Tạ Kỳ Phong đi ra khỏi phòng thay đồ nam và nghe thấy giọng cô ở cuối hành lang.
+
+"Đau là phải nói, không được giấu. Giấu một tháng thì nghỉ một tuần. Giấu năm tháng thì có thể nghỉ cả đời."
+
+Anh đứng im ở cửa phòng thay đồ.
+
+Ở cuối hành lang, cô đang nói chuyện với Tô Linh. Con bé mười hai tuổi ngước lên nhìn cô, mắt to tròn như mắt nai.
+
+"Chị có giấu bao giờ chưa?"
+
+Cô không trả lời. Cô chỉ đứng dậy. Chậm rãi. Một tay chống vào sàn.
+
+Kỳ Phong đứng ở cửa phòng thay đồ cho đến khi cô đi khuất.
+
+*Giấu năm tháng thì có thể nghỉ cả đời.*
+
+Năm tháng.
+
+Từ tháng Chín năm lớp 11, khi anh bắt đầu để ý những buổi sáng của cô. Đến tháng Hai, khi cô bắt đầu mặc chiếc áo cardigan xám. Năm tháng.
+
+Anh không biết mình đang đếm cái gì.
+
+Anh chỉ biết, câu ấy, cô không nói với Tô Linh như một chuyên viên vật lý trị liệu nói với bệnh nhân. Cô nói như một người đã từng.
+
+---
+
+Chiều thứ Sáu, sau buổi đánh giá nội bộ, Chu Diệc Thần đứng cạnh anh trước tấm bảng tin ở hành lang nhà tập.
+
+9,4. 9,1. 8,9.
+
+Diệc Thần nhìn bảng điểm rất lâu. Rồi anh ta nói, không quay sang:
+
+"Lúc nãy tôi bảo Tuyết Nghi, đây không phải là Rumba. Đây là đánh nhau."
+
+"Tôi nghe thấy." Kỳ Phong nói.
+
+"Tôi không chê." Diệc Thần nói. "Đánh nhau đẹp thật. Cả phòng nín thở. Tôi nhảy chín năm rồi, chưa bao giờ làm cả phòng nín thở như thế." Anh ta ngừng lại. "Nhưng tôi biết một điều. Người ta chỉ đánh nhau dữ như thế với người mà mình không chịu buông."
+
+Anh ta vỗ nhẹ vai Kỳ Phong, rồi đi.
+
+Kỳ Phong đứng lại trước bảng tin.
+
+Anh nhìn tên mình và tên cô, đứng cạnh nhau ở dòng đầu tiên. Như năm mười hai tuổi, trên tấm bảng trắng ở phòng tập đội trẻ Nguyệt Loan. *Cặp một. Tạ Kỳ Phong – Ôn Chi Hạ.*
+
+Mười năm.
+
+Anh không biết mình đang đánh nhau với cô, hay đánh nhau với năm năm.
+
+---
+
+Tối hôm ấy, Tô Linh tìm anh ở bậc thềm ký túc xá nam.
+
+"Anh Phong." Con bé nói, ngồi xuống cạnh anh. "Chị Chi Hạ chỉ em ba bài giãn cơ lưng. Em tập hai hôm rồi, đỡ nhiều lắm."
+
+"Ừ. Tốt."
+
+"Chị ấy bắt em phải tự nói với thầy Nghiêm." Tô Linh nói. "Em sợ lắm. Nhưng chị ấy bảo, đau là phải nói. Em nói rồi. Thầy không mắng em."
+
+Con bé ngừng lại, nghiêng đầu nhìn anh.
+
+"Anh Phong. Em hỏi chị ấy có giấu bao giờ chưa. Chị ấy không trả lời."
+
+Kỳ Phong nhìn con bé.
+
+"Em nghĩ là có." Tô Linh nói, rất nghiêm túc, như một nhà khoa học vừa tìm ra định luật mới. "Vì người chưa giấu bao giờ thì sẽ bảo là chưa. Người giấu rồi thì mới không trả lời."
+
+Anh không nói gì.
+
+Anh chỉ xoa đầu con bé, rồi gọi Mạc Thiên Du ra, bảo hai đứa ngồi xuống, anh dạy buộc dây giày kiểu Estherwyn.
+
+---
+
 Tám giờ tối thứ Sáu, điện thoại của Tạ Kỳ Phong rung lên.
 
 Anh đang ngồi ở bậc thềm ký túc xá nam, dạy Mạc Thiên Du buộc dây giày thi đấu theo kiểu Estherwyn, buộc hai vòng chéo để không tuột khi xoay. Tô Linh ngồi bên cạnh, ôm đầu gối, xem chăm chú như xem phép thuật.
