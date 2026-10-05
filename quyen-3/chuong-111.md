@@ -50,9 +50,9 @@ Ba tiếng.
 
 Sáu giờ bốn mươi chiều.
 
-Cô đứng trước cửa câu lạc bộ Hải Âu. Từ nhà bà nội đi bộ xuống đây mất mười hai phút. Cô đi mất hai mươi. Dừng lại ba lần. Lần nào cũng không biết vì sao dừng.
+Cô đứng trước cửa nhà văn hóa phường. Từ nhà bà nội đi bộ xuống đây mất mười hai phút. Cô đi mất hai mươi. Dừng lại ba lần. Lần nào cũng không biết vì sao dừng.
 
-Tòa nhà hai tầng cuối phố Lưới Biển. Tường vôi vàng đã ngả màu đất. Biển hiệu gỗ sơn xanh, chữ trắng, chữ *Â* mất dấu mũ từ năm cô mười tuổi, chưa ai sơn lại. Cửa sắt kéo đã mở sẵn một nửa.
+Tòa nhà ba tầng cuối phố Lưới Biển. Tường vôi vàng đã ngả màu đất. Ở chân cầu thang, một tấm biển gỗ sơn xanh, chữ trắng, mũi tên chỉ lên: *Câu lạc bộ khiêu vũ Hải Âu – Tầng 3.* Chữ *Â* mất dấu mũ từ năm cô mười tuổi, chưa ai sơn lại. Cửa sắt kéo đã mở sẵn một nửa.
 
 Trước cửa, cây phượng già nở đỏ rực. Hoa rụng đầy bậc thềm. Cô đứng trên một lớp cánh hoa mỏng, mềm, như đứng trên tấm thảm.
 
@@ -68,7 +68,7 @@ Mẹ cô nới đường may hai bên eo. Nới chân váy ba phân. Mười sá
 
 Cô đứng trên bậc thềm Hải Âu. Nhìn vào trong.
 
-Hành lang tối. Cuối hành lang, cửa phòng tập mở. Ánh nắng chiều hắt ra từ trong, vàng như mật.
+Cầu thang tối. Ba tầng. Trên đầu cầu thang tầng ba, cửa phòng tập mở. Ánh nắng chiều hắt xuống, vàng như mật.
 
 Có tiếng bước chân sau lưng.
 
@@ -102,7 +102,7 @@ Một lần. Hai lần. Ba lần.
 
 Anh siết lại.
 
-Hai người bước vào.
+Hai người bước vào. Leo lên cầu thang gỗ hẹp. Mỗi bậc kêu cót két dưới chân. Như năm sáu tuổi.
 
 ---
 

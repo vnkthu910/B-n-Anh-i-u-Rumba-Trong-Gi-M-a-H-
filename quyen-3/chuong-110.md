@@ -50,7 +50,7 @@ Paso Doble. Sáu mươi hai ô nhịp mỗi phút. Anh là người đấu bò. 
 
 Anh không nhìn mẹ. Anh nhìn cô.
 
-Nhưng anh biết mẹ đang xem. Như năm anh sáu tuổi, tập bước Rumba cơ bản ở câu lạc bộ Hải Âu, giẫm lên chân cô ba lần trong mười phút. Mẹ đứng ngoài cửa sổ. Không vào. Anh không nhìn mẹ, nhưng anh biết.
+Nhưng anh biết mẹ đang xem. Như năm anh sáu tuổi, tập bước Rumba cơ bản ở câu lạc bộ Hải Âu, giẫm lên chân cô ba lần trong mười phút. Mẹ đứng ngoài cửa phòng tập. Không vào. Anh không nhìn mẹ, nhưng anh biết.
 
 Đoạn giữa. Cô xoay ba vòng liên tiếp quanh trục. Anh dậm chân đúng nhịp. Appel. Rồi cô ngã ngửa ra sau, anh đỡ, một tay sau lưng cô, cách sàn hai gang tay.
 

@@ -164,7 +164,7 @@ Hai người đi lên dốc. Cùng nhau.
 
 Nhưng không về nhà ngay.
 
-Đến lưng chừng dốc, cô kéo tay anh rẽ vào con ngõ nhỏ dẫn ra nhà văn hóa phường. Tòa nhà ba tầng cuối phố Lưới Biển. Cửa sắt đã khóa. Nhưng cầu thang sắt bên hông vẫn mở, như mọi năm.
+Đến lưng chừng dốc, cô dừng lại. Quay xuống. Rồi kéo tay anh đi ngược về phía cuối phố Lưới Biển. Về lại nhà văn hóa phường. Tòa nhà ba tầng, tầng ba là Hải Âu, nơi hai người vừa rời đi một tiếng trước. Cửa sắt đã khóa. Nhưng cầu thang sắt bên hông dẫn thẳng lên sân thượng vẫn mở, như mọi năm.
 
 Hai người leo lên sân thượng.
 
