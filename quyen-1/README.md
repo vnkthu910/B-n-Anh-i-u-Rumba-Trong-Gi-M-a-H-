@@ -11,3 +11,7 @@
 | [7](chuong-07.md) | Bữa cơm nhà họ Tạ | Tạ Kỳ Phong | Lớp 4 (9 tuổi) |
 | [8](chuong-08.md) | Ba con dốc | Ôn Chi Hạ | Tháng 10–11, lớp 5 (10 tuổi) |
 | [9](chuong-09.md) | Bến phà cũ | Tạ Kỳ Phong | Tháng 12 lớp 5 – tháng 3 (10 tuổi) |
+| [10](chuong-10.md) | Người tuyển quân | Ôn Chi Hạ | Tháng 10, lớp 6 (11 tuổi) |
+| [11](chuong-11.md) | Con không đổi | Tạ Kỳ Phong | Đầu năm lớp 7 (12 tuổi) |
+| [12](chuong-12.md) | Lời hứa ở bến phà | Ôn Chi Hạ | Lớp 7 (12 tuổi), chính thức ghép đôi |
+| [13](chuong-13.md) | Cạnh nhau và cùng nhau | Tạ Kỳ Phong | Lớp 8 đến mùa hạ (13–14 tuổi) |
