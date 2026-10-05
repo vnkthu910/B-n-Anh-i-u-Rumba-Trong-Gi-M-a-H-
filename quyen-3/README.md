@@ -26,3 +26,9 @@
 | [98](chuong-98.md) | Nếu cháu hỏi | Tạ Kỳ Phong | 24 tháng Một |
 | [99](chuong-99.md) | Ba trăm mười hai | Ôn Chi Hạ | 25 tháng Một |
 | [100](chuong-100.md) | Ba trăm mười ba | Tạ Kỳ Phong | Rạng sáng 26 tháng Một |
+| [101](chuong-101.md) | Căn phòng áp mái | Ôn Chi Hạ | 1 tháng Hai, Nguyệt Loan |
+| [102](chuong-102.md) | Ba mươi Tết | Tạ Kỳ Phong | 2–4 tháng Hai |
+| [103](chuong-103.md) | Cuốn sổ bìa đen | Ôn Chi Hạ | Mùng một Tết |
+| [104](chuong-104.md) | Cổng trường Tùng Bách | Tạ Kỳ Phong | Mùng hai – mùng ba Tết |
+| [105](chuong-105.md) | Hai chiếc kim | Ôn Chi Hạ | Mùng năm Tết |
+| [106](chuong-106.md) | Nửa nhịp | Tạ Kỳ Phong | 9–10 tháng Hai |
