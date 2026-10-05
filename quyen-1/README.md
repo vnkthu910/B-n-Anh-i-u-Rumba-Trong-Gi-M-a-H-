@@ -35,6 +35,6 @@
 | [31](chuong-31.md) | Năm mười tám tuổi | Ôn Chi Hạ | Mùa hạ năm 18 tuổi |
 | [32](chuong-32.md) | Đoạn phim mười hai giây | Tạ Kỳ Phong | 19 tuổi |
 | [33](chuong-33.md) | Một nhịp ở hành lang | Ôn Chi Hạ | 20 tuổi, Giải Mở rộng Châu lục |
-| [34](chuong-34.md) | Hộp bánh dừa thứ tư | Tạ Kỳ Phong | 21 tuổi |
+| [34](chuong-34.md) | Hộp bánh dừa thứ tư | Tạ Kỳ Phong | 20 tuổi (tháng Sáu năm cô tròn 21) |
 | [35](chuong-35.md) | Sân ga | Ôn Chi Hạ | Đầu năm 22 tuổi |
 | [36](chuong-36.md) | Bạn nhảy cũ (II) | Tạ Kỳ Phong | Mùa xuân năm 22 tuổi, nối về chương 1 |
