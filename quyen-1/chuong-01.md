@@ -166,7 +166,7 @@ Ngoài trời, gió núi thổi qua những con dốc, mang theo cái lạnh cò
 
 Tối hôm đó, mẹ gọi video.
 
-Màn hình rung rung một lúc mới hiện ra gương mặt bà Tống Mai, kính lão trễ xuống sống mũi, sau lưng là sạp vải quen thuộc ở chợ Vọng Hải. Những cây vải màu xếp chồng lên nhau, ánh đèn vàng hắt xuống từ mái tôn. Bà vẫn còn bán hàng dù đã gần chín giờ tối.
+Màn hình rung rung một lúc mới hiện ra gương mặt bà Tống Mai, kính lão trễ xuống sống mũi, sau lưng là những dãy máy khâu trong xưởng may của dì Lan ở Sương Lĩnh. Những cây vải màu xếp chồng lên nhau, ánh đèn huỳnh quang trắng hắt xuống từ trần nhà. Bà vẫn còn ở xưởng dù đã gần chín giờ tối.
 
 "Thằng Thu nói với mẹ rồi." Bà Tống nói ngay, không chào hỏi. "Con lên Vân Đình à?"
 
@@ -186,7 +186,7 @@ Bà Tống nhìn con gái qua màn hình. Mẹ cô là người ít nói. Bà c�
 
 "Con có sao đâu ạ." Chi Hạ cười. "Mẹ, con hai mươi hai tuổi rồi. Đội tuyển có hơn bốn mươi người, chưa chắc đã chạm mặt nhau mấy lần. Mà có chạm mặt thì sao? Ngày xưa là ngày xưa thôi."
 
-Bà Tống không đáp. Bà cúi xuống, lục lọi gì đó dưới gầm sạp, rồi giơ lên trước camera một hộp bánh dừa, loại hộp thiếc tròn, màu xanh lá, in hình cây dừa ngả bóng ra biển.
+Bà Tống không đáp. Bà cúi xuống, lục lọi gì đó dưới gầm bàn máy khâu, rồi giơ lên trước camera một hộp bánh dừa, loại hộp thiếc tròn, màu xanh lá, in hình cây dừa ngả bóng ra biển.
 
 "Bố con chạy chuyến Bắc vừa về, mua cho con đấy. Mẹ gửi lên Vân Đình cho con nhé."
 
@@ -228,7 +228,7 @@ Cô không mở tấm ảnh ra xem. Cô chỉ cầm chiếc khăn tay lên, gấ
 
 **Khúc Nam:** À. Anh có đọc danh sách.
 
-**Khúc Nam:** Anh không biết chuyện ngày trước của em, em cũng không cần kể. Anh chỉ muốn nói là trong năm năm anh làm bạn nhảy của em, em chưa từng nhảy Rumba bằng cả trái tim. Anh không trách em đâu, ai cũng có lý do của mình. Nhưng nếu lần này có ai giúp được em làm điều đó, thì em đừng bỏ lỡ nhé.
+**Khúc Nam:** Anh không biết chuyện ngày trước của em, em cũng không cần kể. Anh chỉ muốn nói là trong ba năm anh làm bạn nhảy của em, em chưa từng nhảy Rumba bằng cả trái tim. Anh không trách em đâu, ai cũng có lý do của mình. Nhưng nếu lần này có ai giúp được em làm điều đó, thì em đừng bỏ lỡ nhé.
 
 Chi Hạ đọc tin nhắn, ngón tay dừng rất lâu trên bàn phím.
 
