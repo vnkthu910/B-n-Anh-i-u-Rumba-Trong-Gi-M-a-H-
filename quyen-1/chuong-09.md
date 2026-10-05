@@ -314,7 +314,7 @@ Kỳ Phong quay phắt sang nhìn cô bé.
 
 Cô bé đang nhìn thẳng ra sân khấu, mặt nghiêm túc. Nhưng khóe môi cô bé giật giật, như đang cố nhịn cười.
 
-Năm năm trước, ở cổng trường Tùng Bách, dưới cơn mưa tháng Chín, cậu đã nói với cô bé câu ấy. Đúng từng chữ.
+Gần năm năm trước, ở cổng trường Tùng Bách, dưới cơn mưa tháng Chín, cậu đã nói với cô bé câu ấy. Đúng từng chữ.
 
 Kỳ Phong bật cười.
 

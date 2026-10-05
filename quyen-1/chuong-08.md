@@ -276,7 +276,7 @@ Cô bé không nói gì. Cô bé chỉ lục ngăn kéo bàn học, lấy ra m�
 
 Đó là miếng băng hình con cá voi xanh. Năm lớp 1, cô bé đã đi khắp các hiệu thuốc quanh chợ để tìm mua đúng loại ấy, rồi cất trong ngăn kéo đến giờ, chưa dùng lần nào.
 
-Năm năm trước, ở cổng trường, cậu đã dán cho cô bé một miếng băng y như thế.
+Bốn năm trước, ở cổng trường, cậu đã dán cho cô bé một miếng băng y như thế.
 
 Kỳ Phong nhìn miếng băng trên đầu gối mình rất lâu. Rồi cậu ngẩng lên. Chi Hạ vội quay mặt đi, cúi đầu xuống chép bài, như thể vừa không làm gì cả. Cô bé cảm thấy vành tai mình nóng lên, nóng hơn cả cơn sốt mấy hôm trước.
 

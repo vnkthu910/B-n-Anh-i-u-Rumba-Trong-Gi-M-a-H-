@@ -206,7 +206,7 @@ Năm đêm đầu tiên, ngọn đèn ấy sáng rất khuya. Có đêm sáng đ
 
 Đêm thứ sáu, nó tắt sớm. Mười giờ tối đã tắt.
 
-Đêm thứ bảy, nó không sáng.
+Đêm thứ bảy, nó tắt lúc mười một giờ. Rồi không sáng lại nữa.
 
 Sáng Chủ nhật, cậu đạp xe xuống dốc Thính Đào. Qua con đường lớn. Qua ngã ba chân dốc. Qua gốc cây phượng thứ ba. Cậu không dừng lại ở đó như mọi khi. Cậu đạp thẳng lên dốc Phượng Tím.
 

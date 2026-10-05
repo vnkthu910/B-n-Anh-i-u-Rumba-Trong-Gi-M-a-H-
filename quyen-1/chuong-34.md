@@ -28,13 +28,13 @@ Cô đến để mượn cuốn sách về lịch sử khiêu vũ Latin. Cô đ�
 
 "Năm năm nữa là chín hộp."
 
-"Năm năm nữa tôi không ở đây."
+"Năm năm nữa tôi không còn ở đây."
 
 Isadora nhìn cậu.
 
-"Cậu định về à? Hợp đồng học viện còn hai năm nữa."
+"Cậu định về à? Hợp đồng học viện còn một năm nữa."
 
-"Hai năm nữa thì về."
+"Một năm nữa thì về."
 
 "Về rồi làm gì?"
 
@@ -60,7 +60,7 @@ Isadora nhìn cậu rất lâu. Rồi cô đặt hộp bánh dừa về chỗ c�
 
 Kỳ Phong ngẩng lên.
 
-"Chưa phải bây giờ." Isadora nói nhanh. "Năm sau, hoặc năm sau nữa. Khi hợp đồng của chúng ta gần hết. Tôi không muốn làm cậu bị kẹt giữa mùa giải. Nhưng tôi muốn cậu biết trước. Để cậu chuẩn bị."
+"Chưa phải bây giờ." Isadora nói nhanh. "Có lẽ đầu năm sau. Khi hợp đồng của chúng ta gần hết. Tôi không muốn làm cậu bị kẹt giữa mùa giải. Nhưng tôi muốn cậu biết trước. Để cậu chuẩn bị."
 
 Cô nhìn cậu.
 
@@ -398,7 +398,7 @@ Rồi cậu mở cuốn sổ tay bìa da, lật đến trang mới.
 
 *Thầy Lucien nói: một điệu Rumba cần hai người.*
 
-*Hợp đồng học viện còn một năm rưỡi.*
+*Hợp đồng học viện còn nửa năm nữa.*
 
 Cậu ngừng bút rất lâu.
 

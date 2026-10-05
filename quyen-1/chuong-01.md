@@ -288,7 +288,7 @@ Chi Hạ thì tin. Từ bé anh đã như thế. Anh nhớ tên bác bảo vệ 
 
 "Năm cháu mười lăm tuổi lên đây thi giao hữu, chú cho cháu mượn ô còn gì. Cháu chưa trả, cháu nhớ chứ." Anh nói, giọng như đùa. "Hôm nay cháu mang trả chú đây."
 
-Ông bảo vệ lại cười to hơn. Cả mái hiên cười theo.
+Ông bảo vệ lại cười to hơn, xua tay bảo mưa thế này trả cái gì mà trả, cứ cầm mà đi, lúc nào tạnh thì mang trả. Cả mái hiên cười theo.
 
 Chi Hạ đã gấp xong tờ khăn giấy thành một hình vuông nhỏ bằng móng tay. Cô nhét nó vào túi áo, cúi xuống kéo vali. Cô định đi luôn vào trong, không đợi mưa tạnh. Một chút mưa không làm cô chết được.
 

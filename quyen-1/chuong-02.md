@@ -214,10 +214,6 @@ Cha-cha-cha.
 
 Chi Hạ lẩm nhẩm cái tên ấy trong miệng. Nó nghe như tiếng giày gõ xuống sàn. Cha. Cha. Cha.
 
-Đứng ở phía xa, giữa hàng lớp 1A, có một cậu bé thắt cà vạt lệch đang ngáp dài, nhìn lên trời như thể chẳng có gì trên đời này buồn chán hơn khiêu vũ.
-
-Chi Hạ không nhìn thấy cậu.
-
 ---
 
 Chiều hôm ấy, mẹ đón cô bé ở cổng trường đúng giờ.

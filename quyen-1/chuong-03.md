@@ -352,7 +352,7 @@ Rồi bà đặt tách trà xuống chiếc bàn nhỏ ở góc phòng, bước 
 
 Bên ngoài cửa sổ kính lớn, mưa đêm lại rơi trên vịnh biển Nguyệt Loan.
 
-Cách đó ba cây số, trong một căn nhà mái tôn nhỏ ở cuối dốc Phượng Tím, có một cô bé đang ngủ, trong túi áo sơ mi treo trên vách vẫn còn chiếc khăn tay có chữ "T".
+Kỳ Phong vừa tập xoay vừa nghĩ đến căn nhà mái tôn nhỏ ở cuối dốc Phượng Tím, cách đây ba cây số. Giờ này chắc cô bé đã ngủ. Chiếc khăn tay có chữ "T" chắc vẫn nằm trong túi áo sơ mi treo trên vách.
 
 Giữ hộ cậu.
 
