@@ -1,49 +1,80 @@
-# Bên Anh, Điệu Rumba Trong Giọt Mưa Hạ
+# Bên Anh Điệu Rumba Trong Gió Mùa Hạ
 
 ## Văn án
 
-> Chiều tháng Sáu, mưa rào trút xuống con ngõ cũ phố Hàng Bông.
+> Mùa xuân năm hai mươi hai tuổi, danh sách triệu tập đội tuyển quốc gia được công bố.
 >
-> Người đàn ông ướt sũng đứng ở cửa phòng tập, nước nhỏ từng giọt xuống sàn gỗ đã bạc màu.
+> Mưa rơi trắng cổng Trung tâm Huấn luyện Ngân Sơn. Người đàn ông được bình chọn là "tuyển thủ dễ thương nhất đội tuyển" đứng dưới mái hiên, cười với từng người một, nhớ tên cả cô lao công quét sân.
 >
-> "Tôi muốn học rumba. Ba tháng."
+> Rồi anh quay sang cô, nụ cười vẫn còn nguyên trên môi:
 >
-> Lâm Hạ không ngẩng đầu, chỉ lật một trang sổ: "Rumba là điệu nhảy của tình yêu, anh định nhảy với ai?"
->
-> "Chưa biết."
->
-> "Vậy anh về đi. Rumba không dạy cho người không biết mình đang nhảy vì ai."
->
-> Anh không đi. Anh đặt lên bàn một tập hồ sơ — quyết định giải tỏa tòa nhà, trên đó có chữ ký của chính anh.
->
-> "Ba tháng nữa, chỗ này sẽ bị phá dỡ. Trước ngày đó, tôi muốn biết vì sao bà tôi lại khóc mỗi lần nghe bản nhạc này."
->
-> Chiếc máy hát cũ khẽ quay. Tiếng kèn saxophone rơi xuống, chậm rãi như mưa.
+> "Ôn Chi Hạ. Lâu rồi không gặp, bạn nhảy cũ."
 
 ---
 
-Ba năm trước, Lâm Hạ là vận động viên khiêu vũ thể thao được kỳ vọng nhất của đội tuyển. Đêm chung kết, giữa bài rumba, cô ngã. Dây chằng cổ chân đứt, bạn nhảy rời đi, giấc mơ khép lại cùng tiếng vỗ tay dang dở.
+Năm sáu tuổi, Ôn Chi Hạ ngã trong ngày khai giảng, cậu nhóc lớp 1A chìa cho cô một chiếc khăn tay.
 
-Cô trở về căn phòng tập nhỏ bà ngoại để lại, dạy nhảy cho mấy cô chú hưu trí, sống những ngày lặng như mặt nước.
+Năm bảy tuổi, ở câu lạc bộ khiêu vũ nhỏ trên tầng ba nhà văn hóa phường, nơi tấm gương có một vết nứt hình tia chớp, cậu giơ tay: "Con muốn nhảy với bạn ấy."
 
-Đoàn Gia Vũ là kỹ sư kết cấu, người tin vào số liệu, tải trọng và những đường thẳng. Anh đến để ký biên bản phá dỡ — rồi ở lại vì một bản rumba cũ trong di vật của bà nội, và vì cô gái nhảy một mình mỗi khi trời mưa.
+Bài Rumba đầu tiên, cô giẫm chân cậu ba lần. Cậu cười, bảo lần sau cậu né.
 
-Anh vụng về, cứng nhắc, đếm nhịp như đọc bản vẽ.
-Cô lạnh nhạt, khó tính, không cho phép ai bước quá gần.
+Năm lớp 3, cậu tặng cô một sợi ruy băng đỏ. Cô buộc tóc bằng nó cho đến năm mười bảy tuổi.
 
-Nhưng rumba là điệu nhảy của khoảng cách: tiến một bước, lùi một bước, buông tay rồi lại tìm nhau.
+Họ học chung trường mười một năm mà chưa từng chung lớp, nhưng trên sàn nhảy thì chưa từng rời nhau. Bịt mắt vẫn tìm thấy tay nhau đúng nhịp. Trọng tài ghi vào phiếu chấm: *"sự kết nối không thể dạy được."* Người trong giới gọi họ là Tiên đồng – Ngọc nữ của làng Latin.
 
-Mùa hạ năm ấy, mưa rất nhiều.
-Và cô dạy anh cách yêu, theo nhịp chậm — nhanh — nhanh — chậm.
+Đêm Trung thu năm mười lăm tuổi, trên sân thượng câu lạc bộ, cậu nói:
+
+"Năm mười tám tuổi, mình cùng lên đội tuyển quốc gia."
+
+Tạ Kỳ Phong coi đó là lời hứa lớn nhất đời mình.
+
+Năm mười bảy tuổi, ngay sau trận chung kết cuối cùng, vẫn mặc nguyên chiếc váy thi mẹ cô đính từng hạt đá bằng tay, Ôn Chi Hạ nói:
+
+"Tớ muốn đổi bạn nhảy. Nhảy với cậu mệt lắm."
+
+Một tuần sau, cả nhà cô dọn đi. Số điện thoại bị đổi. Sợi ruy băng đỏ nằm lại trong hộp giày của cậu.
+
+Cô có ba lý do để buông tay. Cô chỉ nói ra một lời nói dối.
 
 ---
 
-**Một câu giới thiệu:** Người định phá bỏ căn phòng tập của cô, lại là người khiến cô muốn nhảy lại lần nữa.
+Năm năm sau.
 
-**Lập ý:** Có những vết thương không cần quên, chỉ cần có người cùng bước qua.
+Anh là ngôi sao được yêu mến nhất xứ người, nhảy năm điệu hoàn mỹ, chỉ có Rumba luôn thấp điểm nhất. Bạn nhảy của anh nói: *"Cậu nhảy Rumba như đang tìm một người không có mặt trên sàn."*
 
-**Thể loại:** Hiện đại, ngôn tình, đô thị, chữa lành, chậm nhiệt, HE.
+Cô đi qua phẫu thuật, phục hồi, rồi đứng lên sàn đấu lần nữa. Giới chuyên môn nhận xét: *"Rumba của Ôn Chi Hạ đẹp như tượng, nhưng vẫn chỉ là tượng."*
 
-**Nhân vật chính:** Lâm Hạ, Đoàn Gia Vũ.
+Một bản hợp đồng ghép đôi thử ba tháng đưa họ trở lại cùng một phòng tập.
 
-**Nhân vật phụ:** Bà Tư (học viên lớn tuổi nhất lớp), Triệu Khải (bạn nhảy cũ), Đoàn Minh Châu (em gái Gia Vũ).
+Anh vẫn là "bạn trai quốc dân", ấm áp với cả đội tuyển, chỉ trừ cô. Anh không lạnh lùng, anh chỉ không cười với cô, và điều đó làm cô đau hơn mọi sự lạnh lùng trên đời.
+
+Buổi tập Rumba đầu tiên, tay anh đặt lên eo cô. Cả phòng tập im bặt.
+
+"Anh chưa tha thứ cho em." Anh cúi xuống, giọng rất khẽ. "Nhưng anh cũng không để em đi thêm lần nào nữa."
+
+---
+
+Có một điều trọng tài, huấn luyện viên, đối thủ, báo chí và người hâm mộ đều phải thừa nhận:
+
+Không ai trong hai người nhảy được Rumba hoàn hảo với người khác.
+
+Người hâm mộ gọi họ là "Phong Hạ", tức gió mùa hạ.
+
+Hai, ba, bốn, một.
+Lần này, anh không đợi cô bước tới nữa.
+
+---
+
+**Một câu giới thiệu:** Năm mười bảy tuổi, cô buông tay anh để anh được bay. Năm hai mươi hai tuổi, anh trở về, không định buông tay cô thêm lần nào nữa.
+
+**Lập ý:** Yêu một người không phải là quyết định thay người ấy, mà là cùng nhau bước tiếp theo một nhịp.
+
+**Thể loại:** Ngôn tình đô thị, thanh xuân vườn trường, thanh mai trúc mã, thể thao, gương vỡ lại lành, ngọt sủng, HE.
+
+**Tinh thần:** Từ đồng phục đến váy cưới, ngọt sâu răng.
+
+**Nhân vật chính:** Ôn Chi Hạ, Tạ Kỳ Phong.
+
+**Nhân vật phụ:** Lạc Tiểu Mãn, Hàn Duật, Khúc Nam, Isadora Wren, Lâm Tuyết Nghi, Lăng Vân Thư.
+
+**Quy mô:** 212 chương chính và 8 phiên ngoại.
