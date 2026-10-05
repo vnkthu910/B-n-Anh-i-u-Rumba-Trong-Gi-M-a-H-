@@ -8,3 +8,9 @@
 | [40](chuong-40.md) | Kịch bản | Tạ Kỳ Phong | Tuần đầu tiên |
 | [41](chuong-41.md) | Cơn giận | Ôn Chi Hạ | Tuần thứ ba |
 | [42](chuong-42.md) | Điều bảy | Tạ Kỳ Phong | Cuối tuần thứ ba |
+| [43](chuong-43.md) | Không để em đi | Ôn Chi Hạ | Tối thứ Sáu tuần thứ ba |
+| [44](chuong-44.md) | Ba mươi bước | Tạ Kỳ Phong | Tuần thứ tư |
+| [45](chuong-45.md) | Băng dán cơ | Ôn Chi Hạ | Tuần thứ tư |
+| [46](chuong-46.md) | Rumba đi chậm | Tạ Kỳ Phong | Cuối tháng Tư, bà Lăng đến Ngân Sơn |
+| [47](chuong-47.md) | Chiếc ô của bác Toàn | Ôn Chi Hạ | Tối thứ Bảy cuối tháng Tư |
+| [48](chuong-48.md) | Một chút | Tạ Kỳ Phong | Giữa tháng Năm |
