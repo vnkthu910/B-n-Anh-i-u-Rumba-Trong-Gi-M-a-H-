@@ -192,7 +192,7 @@ Cô hôn đáp trả.
 
 Không dịu dàng. Cũng giận dữ. Như vạt váy quất vào không khí như một nhát roi. Như tấm áo choàng đỏ của người đấu sĩ. Những ngón tay cô bấu chặt vào cổ áo sơ mi của anh. Cô kiễng chân lên. Không phải như chiếc lá rơi. Như người leo một con dốc, đến bậc thứ tư, và không dừng lại.
 
-Năm năm của cô. Sương Lĩnh. Hai cái vít. Một năm không đứng thẳng được. Cầu thang nhà thiếu nhi, túi đá áp vào lưng. Chiếc SIM cũ trong hộp gỗ. Năm hộp bánh dừa bố mang về, ăn một chiếc rồi thôi.
+Năm năm của cô. Sương Lĩnh. Hai cái vít. Một năm không đứng thẳng được. Cầu thang nhà thiếu nhi, túi đá áp vào lưng. Chiếc SIM cũ trong hộp gỗ. Bốn hộp bánh dừa bố mang về, ăn một chiếc rồi thôi.
 
 Anh cảm thấy tất cả trong nụ hôn ấy.
 
@@ -246,7 +246,41 @@ Hai mươi ba tuổi.
 
 ---
 
-Không biết bao lâu sau, hai người ngồi xuống chiếu. Lưng tựa lan can sắt.
+Không biết bao lâu sau, anh lùi lại một bước.
+
+Rồi thêm một bước nữa. Rồi nữa. Đến góc sân thượng, cạnh lan can sắt.
+
+Cô nhìn anh. Không hiểu.
+
+Anh đứng ở góc trái sân thượng. Dưới trăng rằm. Như năm mười lăm tuổi.
+
+Cô hiểu.
+
+Cô lùi về góc phải. Đứng đó.
+
+Không có nhạc. Chỉ có gió biển, tiếng sóng dưới bờ kè, và tiếng chuông đồng hồ vừa tắt còn ngân trong không khí.
+
+*Nhịp Thứ Tư.*
+
+Hai người đi về phía nhau. Từ hai góc sân. Chậm. Hai, ba, bốn, một.
+
+Gặp nhau ở giữa.
+
+Một vòng xoay. Cô xoay dưới cánh tay anh, tóc xõa tung ra trong gió. Một cái chạm tay. Một nhịp chờ.
+
+Rồi anh giẫm lên chân cô. Một lần. Cố tình.
+
+Cô bật cười. Tiếng cười vỡ ra, khàn đặc, lẫn với nước mắt chưa khô.
+
+"Lần sau anh né." Anh nói.
+
+"Anh nói dối." Cô nói. "Mười bảy năm anh chưa né lần nào."
+
+Hai người đứng giữa sân thượng, dưới trăng rằm, tay vẫn nắm tay. Đến chỗ năm mười lăm tuổi bài nhảy dừng lại, không ai bước tiếp.
+
+Vẫn chưa có đoạn kết.
+
+Rồi hai người ngồi xuống chiếu. Lưng tựa lan can sắt.
 
 Không cách một cánh tay. Cô ngồi sát anh. Vai chạm vai. Chiếc áo khoác gió anh nhặt lên, choàng lại lên vai cô, rồi cô kéo một nửa sang choàng lên vai anh.
 

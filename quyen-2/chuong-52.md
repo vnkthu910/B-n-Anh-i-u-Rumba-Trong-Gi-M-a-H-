@@ -202,7 +202,7 @@ Kỳ Phong nhìn hộp bánh dừa một lúc.
 
 "Không ạ." Anh nói. "Em xem thôi."
 
-Trong ba lô anh có bốn hộp bánh dừa chưa mở. Bốn năm. Bốn lần ngày hai mươi ba tháng Sáu anh mua, rồi đặt lên kệ, rồi không gửi đi đâu cả.
+Trong ba lô anh có bốn hộp bánh dừa chưa mở. Bốn năm. Bốn lần ngày hai mươi ba tháng Sáu anh mua, rồi đặt lên kệ, rồi không gửi đi đâu cả. Năm thứ năm, mùa xuân năm ngoái, bà cụ người Merrick ở cửa hàng tạp hóa qua đời. Cửa hàng đóng cửa. Ngày hai mươi ba tháng Sáu năm ấy, anh đi bộ ba cây số, đứng trước cánh cửa kéo sắt đã hạ, rồi đi về tay không.
 
 Còn mười ba ngày.
 
@@ -310,9 +310,33 @@ Sáu giờ chiều, anh về đến Ngân Sơn.
 
 Buổi tập chiều đã kết thúc. Anh không kịp về. Cô Tố Nga đã cho cô tập một mình phần bài cá nhân.
 
-Anh đứng ở bậc thềm nhà tập. Tựa vào cột. Đợi.
+Anh đi dọc hành lang tầng một nhà tập. Cửa phòng tập số ba khép hờ. Có tiếng nhạc.
 
-Mười phút sau, cô đi ra.
+*Ngã rẽ.*
+
+Anh đứng ở khe cửa.
+
+Cô đang ở giữa sàn. Một mình. Đoạn mở đầu. Đi vòng quanh một người không có ở đó. Bước tới. Lùi. Xoay. Tay giơ lên ở chỗ tay anh lẽ ra phải ở.
+
+Đến đoạn ba mươi giây đi chậm, cô dừng lại. Lưng áp vào khoảng không.
+
+Anh đẩy cửa bước vào.
+
+Cô không quay lại. Nhưng anh thấy vai cô khẽ động.
+
+Anh đi đến sau lưng cô. Đặt tay lên eo cô. Đúng chỗ. Đúng nhịp.
+
+Cô lùi về. Lưng áp vào ngực anh.
+
+Một nhịp. Hai nhịp.
+
+Cô xoay ra. Muộn hai nhịp.
+
+Nhạc chạy tiếp. Hai người nhảy nốt bài *Ngã rẽ*, không ai nói câu nào, trong phòng tập số ba chỉ có ánh nắng chiều xiên qua cửa sổ. Đến đoạn kết, tay cô đặt trên ngực anh.
+
+Nhạc dừng.
+
+Cô rút tay về. Đi lấy túi giày ở góc phòng. Anh đi theo cô ra bậc thềm nhà tập.
 
 Thấy anh, cô dừng lại.
 

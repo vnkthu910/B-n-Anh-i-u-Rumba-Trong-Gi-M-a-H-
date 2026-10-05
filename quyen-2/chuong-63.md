@@ -288,7 +288,7 @@ Rồi đi về phía nhau.
 
 Cổng trường. Mưa tháng Chín. Một chiếc khăn tay.
 
-Anh giẫm lên chân cô. Một lần. Hai lần. Ba lần. Cố tình. Cô bật cười. Nhăn mặt xin lỗi rối rít, như năm mười lăm tuổi. Anh cũng nhăn mặt. Trong tấm gương lớn, hai người hai mươi ba tuổi đang làm trò như hai đứa trẻ.
+Anh giẫm lên chân cô. Một lần. Hai lần. Ba lần. Cố tình. Cô bật cười. Nhăn mặt xin lỗi rối rít, như năm mười lăm tuổi. Anh cũng nhăn mặt. Trong tấm gương lớn, hai người đã lớn đang làm trò như hai đứa trẻ.
 
 Bến phà cũ. Anh đứng cứng đờ, nhìn ra khoảng không, như năm mười tuổi. Cô nắm tay anh. Siết ba lần. Anh quay lại.
 

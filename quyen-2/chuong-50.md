@@ -62,6 +62,34 @@ Cả phòng họp bật cười. Kể cả Diệc Thần. Kể cả Tuyết Nghi
 
 Kỳ Phong nhìn sang cô. Cô cũng đang cười. Rất khẽ.
 
+Chín giờ, phòng tập số ba. Cửa sổ kéo rèm kín. Bác Toàn được dặn không cho ai đứng ngoài hành lang.
+
+"Rumba." Cô Tố Nga nói. "Từ đầu. Hôm nay tôi không muốn thấy hai đứa nhảy cho máy quay. Không có máy quay nào ở đây."
+
+Nhạc nổi lên.
+
+Đoạn mở đầu. Đi vòng quanh nhau. Anh nhìn cô. Cô nhìn anh. Ba ngày nay, từ khi đoạn phim hai phút mười bảy giây lan khắp nơi, mỗi lần đứng trên sàn, anh cảm thấy có hàng triệu con mắt sau lưng mình.
+
+Hôm nay rèm kéo kín.
+
+Đến đoạn Alemana, cô xoay dưới cánh tay anh. Cuối vòng xoay, cô mở tay trái ra. Muộn hơn nửa nhịp.
+
+Anh chờ.
+
+Không ai quay lại khoảnh khắc ấy. Không ai cắt nó thành đoạn phim, đặt tên, chia sẻ. Nó chỉ ở đây. Trong phòng tập số ba. Giữa hai người.
+
+Anh nhận ra mình thở nhẹ hơn.
+
+Đến cuối bài, cô Tố Nga gấp bản biên đạo lại.
+
+"Tốt hơn hôm qua." Cô nói. "Hôm qua hai đứa nhảy như sợ có người nhìn. Hôm nay nhảy như không ai nhìn."
+
+"Hôm nay không ai nhìn ạ." Tô Linh nói từ góc phòng, rồi bị Mạc Thiên Du bịt miệng.
+
+Cô Tố Nga liếc sang hai đứa trẻ. Khóe miệng giật giật.
+
+"Trừ hai đứa này."
+
 ---
 
 Mười hai giờ trưa, điện thoại của anh rung lên.
@@ -216,7 +244,7 @@ Chị Hà nhìn anh rất lâu. Rồi chị ghi gì đó vào cuốn sổ, gập
 
 Năm giờ chiều thứ Tư, có ba phóng viên vượt qua được cổng.
 
-Không phải ông Toàn để lọt. Họ đi cùng một đoàn kiểm tra của Tổng cục Thể dục Thể thao, có giấy phép, có thẻ phóng viên. Ban giám đốc trung tâm không từ chối được.
+Không phải ông Toàn để lọt. Họ đi cùng một đoàn kiểm tra của Cục Thể thao Liên bang, có giấy phép, có thẻ phóng viên. Ban giám đốc trung tâm không từ chối được.
 
 Họ đợi ở bậc thềm nhà tập. Khi buổi tập chiều kết thúc.
 

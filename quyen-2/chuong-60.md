@@ -96,6 +96,38 @@ Ngoài cửa sổ bếp, gió bắt đầu thổi. Hàng ngân hạnh ngả nghi
 
 ---
 
+Ba giờ chiều, phòng tập số ba.
+
+Gió đã lên. Cửa sổ rung bần bật trong khung. Hàng ngân hạnh ngoài kia ngả rạp xuống rồi bật lên, lá xanh bay lả tả qua ô kính.
+
+"Đoạn ba mươi giây đi chậm." Cô Tố Nga nói, phải nói to hơn mọi khi để át tiếng gió. "Hôm nay tôi muốn xem nó trong tiếng ồn. Ở Cúp Kim Diệp, có những nhà thi đấu ồn hơn thế này nhiều."
+
+Nhạc nổi lên. Gió rít qua khe cửa, lấn cả tiếng nhạc.
+
+Tay anh đặt lên eo cô. Cô lùi về. Lưng áp vào ngực anh.
+
+Hôm qua, ở phòng khám, lòng bàn tay anh đặt trên lưng cô, cách đường sẹo hai đốt ngón tay. Bây giờ cũng chỗ ấy. Bên ngoài lớp áo tập. Anh không dịch đi một li.
+
+Cô cảm thấy. Anh biết cô cảm thấy. Lưng cô khẽ thả lỏng.
+
+Nhịp hai. Nhịp ba. Nhịp bốn.
+
+Một tiếng sấm nổ ngay trên mái tôn. Cả phòng tập rung lên.
+
+Cô không giật mình. Nhịp một.
+
+Cô xoay vào. Mặt đối mặt.
+
+Ở mép sàn, thầy Nghiêm khoanh tay.
+
+"Tiếng sấm mà không làm lỡ nhịp." Ông nói. "Được."
+
+Ông nhìn ra cửa sổ. Trời đen kịt.
+
+"Bốn giờ về hết." Ông nói. "Bão vào sớm hơn dự báo."
+
+---
+
 Năm giờ chiều, mưa đổ xuống.
 
 Không phải mưa. Như có ai lật ngược cả bầu trời. Nước trút xuống mái tôn nhà tập ầm ầm như tiếng trống Paso Doble. Cửa sổ phòng tập số ba rung bần bật. Ngoài kia, con đường ngân hạnh biến mất sau một bức màn trắng xóa.
