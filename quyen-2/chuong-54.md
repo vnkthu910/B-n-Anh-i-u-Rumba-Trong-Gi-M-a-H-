@@ -14,7 +14,7 @@ Tin nhắn đầu tiên của Hàn Duật, gửi lúc năm giờ bốn mươi s�
 
 **Hàn Duật:** [Ảnh]
 
-**Hàn Duật:** Ngã tư Tràng Thi. Dựng đêm qua.
+**Hàn Duật:** Ngã tư Vọng Nguyệt. Dựng đêm qua.
 
 **Hàn Duật:** Cậu biết chuyện này chưa?
 

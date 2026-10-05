@@ -20,3 +20,9 @@
 | [52](chuong-52.md) | Ba năm của người khác | Tạ Kỳ Phong | 10 tháng Sáu |
 | [53](chuong-53.md) | Tấm biển quảng cáo | Ôn Chi Hạ | 12 tháng Sáu |
 | [54](chuong-54.md) | Phòng thay đồ | Tạ Kỳ Phong | 12 tháng Sáu |
+| [55](chuong-55.md) | Ngày mười lăm | Ôn Chi Hạ | 14–15 tháng Sáu, Giải tuyển chọn – vòng loại |
+| [56](chuong-56.md) | Hành lang tầng chín | Tạ Kỳ Phong | 15–16 tháng Sáu, bán kết |
+| [57](chuong-57.md) | Bốn nhịp không biên đạo | Ôn Chi Hạ | 17 tháng Sáu, chung kết |
+| [58](chuong-58.md) | Một nửa | Tạ Kỳ Phong | Đêm 17 tháng Sáu |
+| [59](chuong-59.md) | Bốn năm hay năm năm | Ôn Chi Hạ | 18–19 tháng Sáu |
+| [60](chuong-60.md) | Đêm bão ở phòng tập số ba | Tạ Kỳ Phong | 20–21 tháng Sáu |

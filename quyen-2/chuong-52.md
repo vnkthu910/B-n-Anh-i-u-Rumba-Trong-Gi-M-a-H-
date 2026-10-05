@@ -192,7 +192,7 @@ Anh nhớ năm mười bảy tuổi. Cũng đồng phục. Cũng mùa hạ. Cũn
 
 Tủ kính bày đủ thứ: bánh bông lan, bánh su kem, bánh quy bơ. Ở góc dưới cùng, mấy hộp bánh dừa xếp chồng lên nhau. Hộp thiếc tròn, nắp in hoa văn xanh.
 
-Không phải loại của bà Ôn ở Sương Lĩnh. Nhưng cùng hình dáng.
+Không phải loại hộp xanh lá in hình cây dừa ngả bóng ra biển mà bác Ôn vẫn mua sau mỗi chuyến xe. Nhưng cùng hình dáng.
 
 Cô bán hàng thấy anh đứng lâu, mở cửa kính ra.
 
