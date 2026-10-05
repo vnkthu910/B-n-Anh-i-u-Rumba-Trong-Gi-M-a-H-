@@ -14,3 +14,9 @@
 | [126](chuong-126.md) | Ba mươi bảy tài khoản | Tạ Kỳ Phong | 14–18 tháng Tám |
 | [127](chuong-127.md) | Chín bản nháp | Ôn Chi Hạ | 20–24 tháng Tám, Lam Cảng |
 | [128](chuong-128.md) | Hàng ghế đầu | Tạ Kỳ Phong | 25–26 tháng Tám, Giải vô địch quốc gia |
+| [129](chuong-129.md) | Ba câu | Ôn Chi Hạ | 26 tháng Tám, Lam Cảng |
+| [130](chuong-130.md) | Không centimet | Tạ Kỳ Phong | 27–28 tháng Tám |
+| [131](chuong-131.md) | Hai mươi nghìn một mớ rau | Ôn Chi Hạ | 3 tháng Chín |
+| [132](chuong-132.md) | Nửa đêm ở dốc thứ ba | Tạ Kỳ Phong | 6–7 tháng Chín, Sương Lĩnh |
+| [133](chuong-133.md) | Vật tay | Ôn Chi Hạ | 7 tháng Chín |
+| [134](chuong-134.md) | Sân bệnh viện huyện | Tạ Kỳ Phong | 8–10 tháng Chín |
