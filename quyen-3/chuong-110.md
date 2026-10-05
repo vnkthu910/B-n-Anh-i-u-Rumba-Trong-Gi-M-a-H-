@@ -250,7 +250,7 @@ Phút thứ mười hai, cô ngủ.
 
 Hai mươi tám tháng Năm.
 
-Sáu giờ sáng, điện thoại anh rung. Em Thu.
+Sáu giờ sáng, điện thoại anh rung. Lạc Tiểu Mãn.
 
 Một tấm ảnh.
 
@@ -258,11 +258,11 @@ Phố Lưới Biển, Nguyệt Loan, nhìn từ sân thượng nhà văn hóa ph
 
 Không phải đỏ một cây. Đỏ cả phố. Từ đầu dốc xuống đến bờ kè. Như ai đó đổ một thùng sơn đỏ dọc con đường.
 
-Bên dưới ảnh, em Thu nhắn:
+Bên dưới ảnh, Tiểu Mãn nhắn:
 
-**Em Thu:** Bà nội bảo em chụp. Bà bảo: *gửi cho thằng Phong. Nó biết.*
+**Lạc Tiểu Mãn:** Bà nội cậu gọi tớ lúc năm giờ sáng. Bắt tớ trèo lên sân thượng nhà văn hóa chụp. Bà bảo: *gửi cho thằng Phong. Nó biết.*
 
-**Em Thu:** Anh biết gì ạ?
+**Lạc Tiểu Mãn:** Cậu biết gì?
 
 Anh nhìn tấm ảnh rất lâu.
 
@@ -304,13 +304,13 @@ Anh nhắn cho cô.
 
 Chưa đến mười giây.
 
-**Ôn Chi Hạ:** Em biết. Em Thu gửi cho em trước anh.
+**Ôn Chi Hạ:** Em biết. Tiểu Mãn gửi cho em trước anh.
 
 **Ôn Chi Hạ:** Lúc năm giờ năm mươi.
 
 **Tạ Kỳ Phong:** …
 
-**Ôn Chi Hạ:** Em Thu bảo: *chị Hạ dậy sớm hơn anh Phong.*
+**Ôn Chi Hạ:** Tiểu Mãn bảo: *cậu dậy sớm hơn cậu ta. Cậu ta thua.*
 
 **Ôn Chi Hạ:** Ba mươi mốt?
 

@@ -178,7 +178,7 @@ Trên sân ga, tàu đến muộn mười phút.
 
 Bố cô đứng hút thuốc ở đầu sân ga. Bố anh đứng cạnh, không hút. Hai người nhìn đường ray.
 
-Anh đứng với cô ở giữa sân ga. Em Thu ở nhà, đi học từ sáng. Trước lúc đi, em Thu dúi vào tay cô một túi giấy. Bánh dừa. Mẹ cô làm tối qua. Hai lớp cùi dừa. Một lớp thêm nước cốt.
+Anh đứng với cô ở giữa sân ga. Em Thu ở lại nhà bà nội, còn ngủ, vì tối qua thức xem phim với bà đến một giờ sáng. Trước lúc đi ngủ, em Thu dúi vào tay cô một túi giấy. Bánh dừa. Mẹ cô làm tối qua. Hai lớp cùi dừa. Một lớp thêm nước cốt.
 
 "Bố anh với bố em." Cô nói khẽ. "Nói chuyện gì cả đêm hôm ba mươi?"
 

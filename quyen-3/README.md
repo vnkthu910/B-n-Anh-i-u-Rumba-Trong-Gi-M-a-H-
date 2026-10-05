@@ -38,3 +38,7 @@
 | [110](chuong-110.md) | Hoa phượng | Tạ Kỳ Phong | Tháng Tư – 30 tháng Năm |
 | [111](chuong-111.md) | Trang một trăm bốn mươi mốt | Ôn Chi Hạ | 31 tháng Năm, Nguyệt Loan |
 | [112](chuong-112.md) | Người để về | Tạ Kỳ Phong | 31 tháng Năm |
+| [113](chuong-113.md) | Ba tuần | Ôn Chi Hạ | 2–21 tháng Sáu, Ngân Sơn |
+| [114](chuong-114.md) | Hộp bánh dừa thứ hai mươi | Tạ Kỳ Phong | 22–23 tháng Sáu, Nguyệt Loan |
+| [115](chuong-115.md) | Rumba trong phòng áp mái | Ôn Chi Hạ | Đêm 23 tháng Sáu, sinh nhật 24 tuổi |
+| [116](chuong-116.md) | Hai, ba, bốn, một | Tạ Kỳ Phong | 24–25 tháng Sáu |

@@ -294,7 +294,7 @@ Rồi bác đi tiếp.
 
 Ba giờ chiều. Anh đi chợ Tết về, xách theo một túi đinh và một hộp keo dán gỗ của ông bán đồ sắt đầu ngõ, ông duy nhất ở Nguyệt Loan mở hàng ngày mùng ba.
 
-Bậc thứ mười và bậc thứ mười một trên cầu thang lên phòng áp mái. Kêu từ hồi ông nội còn sống. Năm mười lăm tuổi, lần đầu anh dọn lên đó ở, bà nội bảo: *Ông mày định sửa ba mươi năm. Chưa sửa.*
+Bậc thứ mười và bậc thứ mười một trên cầu thang lên phòng áp mái. Kêu từ năm anh ba tuổi, năm bố anh đóng cầu thang này. Bố anh bảo cầu thang không có bậc kêu thì không phải cầu thang nhà. Năm mười lăm tuổi, lần đầu anh dọn lên đó ở, bà nội bảo: *Bố mày nói thế để khỏi phải sửa. Hai mươi năm rồi.*
 
 Anh định sửa hôm nay.
 
@@ -310,7 +310,7 @@ Bà đứng ở bậc thứ nhất. Tay cầm chiếc rổ rau muống vừa nh�
 
 "Con làm gì đấy?"
 
-"Sửa bậc thang." Anh nói. "Kêu ba mươi năm rồi."
+"Sửa bậc thang." Anh nói. "Kêu hai mươi năm rồi."
 
 Mẹ anh không nói gì. Bà đặt rổ rau xuống bậc thứ nhất. Rồi đi lên. Một bậc. Hai bậc. Đến bậc thứ tám thì dừng. Nhìn tấm ván anh vừa cạy lên.
 
@@ -358,7 +358,7 @@ Mẹ anh quay xuống. Nhặt rổ rau muống lên.
 
 "Tối nay xào tỏi." Bà nói. Không quay đầu. "Con bé thích."
 
-Anh ngồi lại trên bậc thứ mười một. Cầm túi đinh mới mua trên tay. Rồi anh cười một mình, giữa lưng chừng cầu thang của ông nội.
+Anh ngồi lại trên bậc thứ mười một. Cầm túi đinh mới mua trên tay. Rồi anh cười một mình, giữa lưng chừng cầu thang bố anh đóng năm anh ba tuổi.
 
 Hai mươi phút sau, cô từ phòng áp mái đi xuống. Dừng ở bậc thứ mười hai. Nhìn túi đinh trong tay anh, hộp keo, chiếc búa, chiếc tua vít.
 

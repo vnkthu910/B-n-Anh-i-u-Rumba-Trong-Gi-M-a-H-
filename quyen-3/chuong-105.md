@@ -38,7 +38,7 @@ Bà bán cá thở dài. Gói cá.
 
 Hai người nhìn nhau.
 
-Rồi cùng bật cười. Giữa chợ cá Nguyệt Loan, hai người đàn bà ngoài năm mươi, một người cầm giỏ rau, một người xách con cá lóc còn quẫy, cười đến mức phải dừng lại vịn vào cột điện.
+Rồi cùng bật cười. Giữa chợ cá Nguyệt Loan, hai người đàn bà, một người ngoài năm mươi, một người gần năm mươi, một người cầm giỏ rau, một người xách con cá lóc còn quẫy, cười đến mức phải dừng lại vịn vào cột điện.
 
 Cô đứng nhìn hai người.
 
@@ -300,9 +300,9 @@ Em Thu ngồi cạnh cô. Gắp một miếng thịt gà bỏ vào bát cô.
 
 "Ừ."
 
-"Em xin nghỉ học hai ngày được không?" Em Thu quay sang mẹ anh. "Mẹ. Con muốn xem."
+"Em xin nghỉ học hai ngày được không?" Em Thu quay sang mẹ cô. "Mẹ. Con muốn xem."
 
-Mẹ anh nhìn em Thu. Rồi nhìn anh.
+Mẹ cô chưa kịp trả lời. Mẹ anh đã đặt đũa xuống. Nhìn em Thu. Rồi nhìn anh.
 
 "Cả nhà đi." Mẹ anh nói.
 
