@@ -392,6 +392,24 @@ Cô dừng lại. Gần đến mức hơi thở cô làm mờ một vệt nhỏ 
 
 Cô nhìn vệt hơi thở trên mặt gương, mờ dần rồi biến mất.
 
+"Từ thứ hai." Cô nói. Không quay sang. "Anh hứa mùng một. Trước tấm gương nứt."
+
+"Anh hứa sau đoạn kết." Anh nói. "Đây chỉ là tập."
+
+"Thế nghĩa của nó cũng tập được không?"
+
+"Không." Anh nói. "Nghĩa thì nói một lần."
+
+Cô im lặng. Trong gương, cô thấy anh nhìn cô. Không nhìn qua gương. Nhìn thẳng.
+
+"Một lần." Cô nhắc lại.
+
+"Ừ. Một lần. Rồi không rút lại được."
+
+Cô ôm cuốn sổ bìa đen chặt hơn.
+
+"Được." Cô nói. "Thì chờ cô Tuệ."
+
 ---
 
 Chín giờ tối. Phòng áp mái.

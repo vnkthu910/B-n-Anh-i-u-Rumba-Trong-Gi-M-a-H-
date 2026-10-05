@@ -62,7 +62,7 @@ Bà không nhìn những cuộn vải ở ngoài. Bà đi thẳng vào trong. Ch
 
 Bà chủ sạp ngẩng lên. Đẩy kính lão lên trán. Nhìn mẹ anh rất lâu.
 
-"Lăng." Bà nói. "Hai mươi lăm năm rồi mày không mua vải nhảy."
+"Lăng." Bà nói. "Hơn hai mươi năm rồi mày không mua vải nhảy."
 
 "Vâng."
 
@@ -88,11 +88,11 @@ Cô nhìn cuộn lụa đỏ sẫm.
 
 "Bác…"
 
-"Năm hai mươi tư tuổi." Mẹ anh nói. Mắt vẫn nhìn cuộn vải. "Bác may váy cho mình. Mỗi giải bác thi, bác tự may. Bác Quân, bạn nhảy của bác, bảo bác may đẹp hơn thợ."
+"Hồi còn thi." Mẹ anh nói. Mắt vẫn nhìn cuộn vải. "Bác tự may váy cho mình. Mỗi giải bác thi, bác tự may. Năm hai mươi tuổi, bác Quân, bạn nhảy đầu tiên của bác, bảo bác may đẹp hơn thợ."
 
 Mẹ cô đứng bên cạnh, im lặng.
 
-"Hai mươi lăm năm bác không cầm kim may váy nhảy." Mẹ anh nói. "Bác muốn cầm lại một lần."
+"Hơn hai mươi năm bác không cầm kim may váy nhảy." Mẹ anh nói. "Bác muốn cầm lại một lần."
 
 Cô không nói được gì.
 
@@ -320,11 +320,11 @@ Bà nội đặt đũa xuống.
 
 Bà nội nhìn mẹ anh rất lâu.
 
-"Lăng." Bà nói. "Hai mươi lăm năm mày không đi xem một trận đấu nào. Kể cả của thằng Phong."
+"Lăng." Bà nói. "Từ năm thằng Phong mười bảy tuổi, mày ngồi ghế khách mời liên đoàn ở bao nhiêu giải. Chưa lần nào mày ngồi hàng ghế gia đình."
 
 "Vâng."
 
-"Bây giờ mày đi."
+"Bây giờ mày ngồi."
 
 "Vâng."
 

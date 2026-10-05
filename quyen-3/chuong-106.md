@@ -172,7 +172,7 @@ Mẹ anh và mẹ cô ở lại nhà. Chiếc váy đỏ sẫm chưa xong. Chân
 
 "Mẹ không ngủ à?"
 
-"Mẹ hai mươi lăm năm không thức đêm may váy." Mẹ anh nói. "Thức một đêm không chết."
+"Mẹ hơn hai mươi năm không thức đêm may váy." Mẹ anh nói. "Thức một đêm không chết."
 
 Trên sân ga, tàu đến muộn mười phút.
 

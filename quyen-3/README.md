@@ -32,3 +32,9 @@
 | [104](chuong-104.md) | Cổng trường Tùng Bách | Tạ Kỳ Phong | Mùng hai – mùng ba Tết |
 | [105](chuong-105.md) | Hai chiếc kim | Ôn Chi Hạ | Mùng năm Tết |
 | [106](chuong-106.md) | Nửa nhịp | Tạ Kỳ Phong | 9–10 tháng Hai |
+| [107](chuong-107.md) | Đêm trước chung kết | Ôn Chi Hạ | 26 tháng Hai, Vân Đình |
+| [108](chuong-108.md) | Tám nhịp | Tạ Kỳ Phong | 27 tháng Hai |
+| [109](chuong-109.md) | Tin nhắn thứ ba trăm mười bốn | Ôn Chi Hạ | 13 tháng Ba |
+| [110](chuong-110.md) | Hoa phượng | Tạ Kỳ Phong | Tháng Tư – 30 tháng Năm |
+| [111](chuong-111.md) | Trang một trăm bốn mươi mốt | Ôn Chi Hạ | 31 tháng Năm, Nguyệt Loan |
+| [112](chuong-112.md) | Người để về | Tạ Kỳ Phong | 31 tháng Năm |
