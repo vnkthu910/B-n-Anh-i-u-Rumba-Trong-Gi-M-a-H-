@@ -37,4 +37,8 @@
 | [149](chuong-149.md) | Căn hộ tầng bốn | Ôn Chi Hạ | 16 tháng Mười Hai – 1 tháng Một |
 | [150](chuong-150.md) | Giường một mét sáu | Tạ Kỳ Phong | 10–11 tháng Một |
 | [151](chuong-151.md) | Paso | Ôn Chi Hạ | 24–28 tháng Một |
-| [152](chuong-152.md) | P. H. | Tạ Kỳ Phong | Tết (14–16 tháng Hai), Nguyệt Loan |
+| [152](chuong-152.md) | P. H. | Tạ Kỳ Phong | Tết (14–17 tháng Hai), Nguyệt Loan |
+| [153](chuong-153.md) | Năm mươi sáu bậc | Ôn Chi Hạ | Mùng hai Tết (18 tháng Hai), Ngân Sơn |
+| [154](chuong-154.md) | Kỳ thứ tư | Tạ Kỳ Phong | 13–15 tháng Ba, Sương Lĩnh |
+| [155](chuong-155.md) | Về | Ôn Chi Hạ | Tháng Tư |
+| [156](chuong-156.md) | Lưng về phía giám khảo | Tạ Kỳ Phong | 25 tháng Năm, Giải mùa xuân |
