@@ -33,7 +33,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 | 1 | Đồng phục và lời hứa | 1–36 | Xong, đã review, có `Quyen-1-Dong-phuc-va-loi-hua.docx` |
 | 2 | Rumba đối đầu | 37–76 | Xong, đã review, có `Quyen-2-Rumba-doi-dau.docx` |
 | 3 | Nhịp thứ tư chưa có kết | 77–116 | Xong, đã review, có `Quyen-3-Nhip-thu-tu-chua-co-ket.docx` |
-| 4 | Ba centimet | 117–156 | **Đang viết, xong đến chương 134.** Chương tiếp theo: **135 (POV Ôn Chi Hạ)** |
+| 4 | Ba centimet | 117–156 | **Đang viết, xong đến chương 140.** Chương tiếp theo: **141 (POV Ôn Chi Hạ)** |
 | 5 | Rumba tĩnh | 157–190 | Chưa viết |
 | 6 | Váy cưới | 191–212 | Chưa viết |
 | Phiên ngoại | | 8 chương | Chưa viết (chỉ ở đây mới được dùng POV nhân vật phụ) |
@@ -166,7 +166,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 - 111–112: 31/5 ở Hải Âu nhảy "Nhịp Thứ Tư" có kết trước cô Tuệ. Anh nói nghĩa từ Estherwyn, cô nói "Phải". Công khai với hai nhà.
 - 113–116: Tuyết Nghi tặng tinh dầu. Hộp bánh dừa thứ hai mươi. **Đêm đầu tiên 23/6, sinh nhật 24 của cô, trong phòng áp mái** (chương 115). Bà nội trao chìa khóa phòng áp mái. Ba phân.
 
-### Quyển 4 (chương 117–134 đã viết): "Ba centimet", từ cuối tháng Sáu đến 10/9 năm 24 tuổi
+### Quyển 4 (chương 117–140 đã viết): "Ba centimet", từ cuối tháng Sáu đến 10/9 năm 24 tuổi
 - **117** (CH): giờ giới nghiêm, bà Thẩm. Cô Tố Nga đo ba phân. Bánh tráng nướng ("một lần mỗi tuần").
 - **118** (KP): video ba centimet lan truyền. Diêu Mạn báo Phụ lục 4 của Corvane ("không công khai quan hệ tình cảm"). Tô Linh và Thiên Du giẫm chân nhau. Elodie gọi video. Lần đầu lẻn vào ký túc xá nam (Diệc Thần "đeo tai nghe"). Bà Thẩm đưa khăn.
 - **119** (CH): Giải mở rộng Ngân Sơn (17/7), thước kẻ màu hồng. Tám nhịp: "khép hai ngón tay". Trả lời phóng viên "Không bình luận". Cãi nhau rồi làm lành, đọc hợp đồng cùng nhau. Bình luận "kẻ phản bội năm xưa" xuất hiện.
@@ -186,7 +186,16 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 - **133** (CH): ra mắt. Bố cô gục đầu lên vô lăng mới. Hai nhà gặp nhau. Bánh dừa. **Vật tay**: anh để bố cô thắng vì "nghe thấy bác thở". Bố ho ra máu, nhập viện, chẩn đoán phải nghỉ 6 tháng. Anh nói ngay chuyện em Thu kể. Cô kể hết chuyện năm 17 tuổi cho em Thu.
 - **134** (KP): bố cô định bán xe, dặn anh "Đừng để nó gánh một mình". Anh đáp "Con gánh cùng. Nhưng cô ấy phải cho con gánh." Hai người nhảy ở sân bệnh viện cho bố xem ("Nó không kéo con. Thế là đúng"). Lăng muốn trả nợ, mẹ cô từ chối nhưng hứa "nếu không lo được sẽ gọi". Trên xe về, cô lỡ nói "**Bố em không cần biết**" (đúng câu mẹ cô từng nói năm cô 17 tuổi). Cả hai đều chưa quyết.
 
-## 8. Kế hoạch Quyển 4 còn lại (135–156) và các mốc sau
+- **135** (CH): giấy báo kỳ 80. Cô rút hết tiết kiệm 2 năm, nộp ở Quỹ tín dụng Sương Lĩnh ngày 20/9, không ghi chú, bảo mẹ đừng nói với bố, không nói với anh. Nói "không ạ" với bố trước mặt anh ở bệnh viện. Đầy tháng muộn bé Hạ Vy (52 ngày), hai người cùng đeo vòng bạc.
+- **136** (KP): em Thu nhắn anh chuyện kỳ 80. Anh chờ cô nói (12 ngày), không hỏi. Khoảng cách Rumba thành 5 phân, anh chờ quá nửa nhịp. Khúc Nam báo bố cô sắp bán xe cho tay buôn (2/3 giá). **Anh mua lại xe đúng giá qua Khúc Nam** (Khúc Nam đứng tên "anh họ"), xe để trong kho nhà Khúc Nam chờ bố cô khỏe mua lại không lãi. Nói dối cô lần thứ ba ("Chuyện câu lạc bộ"). Ghi chú điện thoại thêm dòng "Sau khi bác ký". Tuyết Nghi cảnh báo. Bố cô ký ngày 29/9.
+- **137** (CH): bố gọi báo bán xe đúng giá, và đã thấy tên cô ở kỳ 80 ("Lần sau ghi một dòng"). Ở bàn thứ ba (2/10) cô thú nhận chuyện kỳ 80; anh nói anh đã biết 12 ngày, định kể chuyện của mình thì Diêu Mạn đến, anh nói "Ở Sương Lĩnh, sau buổi chụp". Ngày 9/10 chụp quảng cáo nước khoáng trên dốc thứ ba ("Như sắp nói"). Bố cô ở bữa trưa: "Tai thằng Nam đỏ. Tao biết nó nói dối. Tao vẫn ký vì tao mệt." Cô thấy chiếc xe trong kho nhà Khúc Nam (có trái tim sơn móng tay em Thu vẽ năm 10 tuổi).
+- **138** (KP): anh dạy em Thu bước Rumba cơ bản dưới giàn bầu (Thu muốn thi sư phạm thể dục). **Cãi nhau trong kho**: "Lần thứ ba. Anh học câu *sau* của em. Anh mua cái mệt của bố em." Cô đi một mình đến khúc quanh dốc thứ ba và nói trước là đi đâu ("Em không giấu"). Bố cô nói với anh: "Mày không nợ tao tiền. Mày nợ tao một câu. Tao được chửi mày. Đấy là phần của tao." và "Không ai nợ ai… để ai cũng được biết mình đang được giúp."
+- **139** (CH): về Ngân Sơn ngồi cách hai hàng ghế; anh xóa dòng "Sau khi bác ký". Rumba 7 phân, "đúng mà không ai nhớ". Cô nhảy một mình trong phòng tập. Mẹ cô kể chuyện năm 22 tuổi, nộp viện phí cho bà nội lén bố, cãi nhau 3 ngày, ngày thứ tư ra cảng đứng xếp hàng cạnh bố ("Em gánh cùng. Anh phải cho em gánh."). Em Thu kể bố đang viết giấy "Kỳ thứ nhất". Trang 142 cô viết thêm: "Lần thứ nhất cãi nhau. Ngày thứ năm. Chậm hơn mẹ một ngày." Một giờ sáng: "Cốc. Cốc. Cốc." Hẹn 5h30 ở cây ngân hạnh thứ bảy, "cùng lúc".
+- **140** (KP): **làm lành**: cùng xin lỗi cùng lúc; cô nhận 3 lỗi, anh nhận 4 lỗi. Quy tắc mới: nói trước, kể cả chuyện chắc chắn bị cấm; cấm thì cãi; cùng tìm cách. Bố cô trả lại tiền xe từng kỳ không lãi, anh nhận và cất giấy. Cô trả dì Lan 40 triệu sau khi nói với bố. Hai người cùng tháo khăn mận chín khỏi cây ngân hạnh thứ bảy (cây đã tự đứng được), trả bà Thẩm. Rumba trở lại 3 phân, có giẫm chân, "năm sau họ sẽ nhớ tên". **Cảnh thân mật thứ ba (làm lành)** ở nhà nghỉ ven hồ Ngân Sơn ngày 18/10: cô đặt phòng, "nói to lên mọi thứ". **Lần đầu tiên cô xoa lưng cho anh.** Giấy của bố: "Kỳ thứ nhất. Cảm ơn mày. Thằng ngốc." Sáng 19/10 cô gọi bố nói chuyện dì Lan, anh ngồi cạnh.
+
+## 8. Kế hoạch Quyển 4 còn lại (141–156) và các mốc sau
+
+> Mạch 133–140 (nợ nhà Ôn, làm lành) đã xong. Còn treo: hãng nước khoáng trả tiền cuối tháng Mười; em Thu tập Rumba, muốn thi sư phạm thể dục (cài sẵn cho vai trợ giảng ở Hải Âu); chiếc xe tải trong kho Khúc Nam; giày Estherwyn giữ đến sinh nhật cô; chuẩn bị Marivonne (chung kết 22/11).
 
 Theo đề cương:
 - **133–140**: khác biệt đời sống (đồ đắt so với mặc cả rau, chế độ ăn khoa học so với bánh tráng). **"Anh âm thầm trả nợ cũ cho bố cô, chạm đúng lòng tự trọng; cãi nhau rồi làm lành theo cách người trưởng thành, học chia sẻ thay vì hy sinh vì nhau."** Ra mắt nhà gái với màn vật tay (đã viết ở 133).

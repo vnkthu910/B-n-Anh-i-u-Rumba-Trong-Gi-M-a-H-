@@ -20,3 +20,9 @@
 | [132](chuong-132.md) | Nửa đêm ở dốc thứ ba | Tạ Kỳ Phong | 6–7 tháng Chín, Sương Lĩnh |
 | [133](chuong-133.md) | Vật tay | Ôn Chi Hạ | 7 tháng Chín |
 | [134](chuong-134.md) | Sân bệnh viện huyện | Tạ Kỳ Phong | 8–10 tháng Chín |
+| [135](chuong-135.md) | Kỳ thứ tám mươi | Ôn Chi Hạ | 15–21 tháng Chín |
+| [136](chuong-136.md) | Năm phân | Tạ Kỳ Phong | 21–29 tháng Chín |
+| [137](chuong-137.md) | Chiếc xe trong kho | Ôn Chi Hạ | 1–9 tháng Mười |
+| [138](chuong-138.md) | Lần nói dối thứ ba | Tạ Kỳ Phong | 9 tháng Mười, Sương Lĩnh |
+| [139](chuong-139.md) | Bảy phân | Ôn Chi Hạ | 10–15 tháng Mười |
+| [140](chuong-140.md) | Cùng lúc | Tạ Kỳ Phong | 15–19 tháng Mười |
