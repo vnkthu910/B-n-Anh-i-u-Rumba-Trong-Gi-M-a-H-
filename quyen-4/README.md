@@ -26,3 +26,9 @@
 | [138](chuong-138.md) | Lần nói dối thứ ba | Tạ Kỳ Phong | 9 tháng Mười, Sương Lĩnh |
 | [139](chuong-139.md) | Bảy phân | Ôn Chi Hạ | 10–15 tháng Mười |
 | [140](chuong-140.md) | Cùng lúc | Tạ Kỳ Phong | 15–19 tháng Mười |
+| [141](chuong-141.md) | Kỳ cuối | Ôn Chi Hạ | 19 tháng Mười – 16 tháng Mười Một |
+| [142](chuong-142.md) | Mái vòm kính | Tạ Kỳ Phong | 17–20 tháng Mười Một, Marivonne |
+| [143](chuong-143.md) | Mười sáu nhịp tối | Ôn Chi Hạ | 22 tháng Mười Một, chung kết Marivonne |
+| [144](chuong-144.md) | Biên bản số mười bảy | Tạ Kỳ Phong | 27–30 tháng Mười Một |
+| [145](chuong-145.md) | Chín phân | Ôn Chi Hạ | 1–7 tháng Mười Hai, Vân Đình |
+| [146](chuong-146.md) | Hai mươi phân bê tông | Tạ Kỳ Phong | 8–14 tháng Mười Hai |

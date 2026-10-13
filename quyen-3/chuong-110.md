@@ -2,9 +2,9 @@
 
 Giữa tháng Tư, mẹ anh đến Ngân Sơn.
 
-Lần đầu tiên.
+Lần đầu tiên bước qua ngưỡng cửa phòng tập số ba.
 
-Mẹ anh vẫn là ủy viên liên đoàn. Vẫn đi họp ở Ngân Sơn mỗi quý. Vẫn ngồi ghế khách mời ở các giải lớn, lưng thẳng như sợi dây đàn. Nhưng từ năm anh mười bảy tuổi, mẹ anh chưa bước vào phòng tập nào có anh. Năm năm anh ở Aldmere, mẹ anh sang thăm hai lần, lần nào cũng hẹn gặp ở quán cà phê bên sông. Năm anh về Ngân Sơn, mẹ anh họp xong là ra ga.
+Mẹ anh vẫn là ủy viên liên đoàn. Vẫn đi họp ở Ngân Sơn mỗi quý. Vẫn ngồi ghế khách mời ở các giải lớn, lưng thẳng như sợi dây đàn. Nhưng từ năm anh mười bảy tuổi, mẹ anh chưa bước vào phòng tập nào có anh. Năm năm anh ở Aldmere, mẹ anh sang thăm hai lần, lần nào cũng hẹn gặp ở quán cà phê bên sông. Năm anh về Ngân Sơn, tháng Tư năm ngoái, mẹ anh đến một lần. Đứng ở cửa phòng tập nhìn hai người tập. Rồi ra ngồi ở bậc thềm. Không bước vào.
 
 Tháng Hai, ở Nguyệt Loan, anh hỏi vì sao.
 
@@ -12,7 +12,7 @@ Mẹ anh bảo: *Mẹ sợ nhìn thấy hai đứa tập. Nhìn thấy là nhìn
 
 Mười lăm tháng Tư, mẹ anh đứng ở cửa phòng tập số ba. Áo sơ mi trắng, quần âu đen, tóc búi thấp. Tay cầm một chiếc túi giấy đựng bánh dừa.
 
-Mẹ anh đứng ở ngưỡng cửa rất lâu. Không bước vào.
+Mẹ anh đứng ở ngưỡng cửa rất lâu. Như tháng Tư năm ngoái. Không bước vào.
 
 Rồi mẹ anh hít một hơi. Sâu. Như người sắp lặn xuống nước.
 
