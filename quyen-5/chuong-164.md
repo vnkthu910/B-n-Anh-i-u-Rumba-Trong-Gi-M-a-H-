@@ -384,7 +384,7 @@ Anh không nói gì.
 
 Phòng tắm im lặng. Chỉ có tiếng nước nhỏ giọt từ vòi.
 
-Anh nhìn vết sẹo bốn phân. Ngang L4. Hai cái vít bên dưới. Bảy năm.
+Anh nhìn vết sẹo bốn phân. Ngang L4. Hai cái vít bên dưới. Tám năm.
 
 Anh nghĩ đến Corwin Ashby đứng cạnh chiếc cân điện tử ở cửa phòng tập phía bắc. Nghĩ đến cô bạn cùng khóa ngất ở Aldmere. Nghĩ đến chín số một và hạng ba. Nghĩ đến Marivonne mùa hạ năm sau. Một điều anh chưa nói. Luật số chín.
 

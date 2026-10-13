@@ -10,3 +10,9 @@
 | [162](chuong-162.md) | Bảng màu số sáu | Tạ Kỳ Phong | 27–28 tháng Sáu, Giải mùa hè |
 | [163](chuong-163.md) | Sổ điểm danh năm nay | Ôn Chi Hạ | 30 tháng Sáu – 13 tháng Bảy |
 | [164](chuong-164.md) | Một lần, vì cậu kể | Tạ Kỳ Phong | 15–18 tháng Bảy |
+| [165](chuong-165.md) | Ba phách | Ôn Chi Hạ | 19 tháng Bảy – 2 tháng Tám |
+| [166](chuong-166.md) | Hạ chí | Tạ Kỳ Phong | 10–28 tháng Tám, Linh Hải |
+| [167](chuong-167.md) | Một vòng ngược chiều kim đồng hồ | Ôn Chi Hạ | 7 tháng Chín, sinh nhật 25 của anh |
+| [168](chuong-168.md) | Sáu – năm | Tạ Kỳ Phong | 10 tháng Chín |
+| [169](chuong-169.md) | Ba phút cát | Ôn Chi Hạ | 26 tháng Chín – 15 tháng Mười |
+| [170](chuong-170.md) | Năm mươi sáu bậc xuống | Tạ Kỳ Phong | 15 tháng Mười |
