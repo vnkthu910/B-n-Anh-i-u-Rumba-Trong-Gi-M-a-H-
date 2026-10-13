@@ -33,7 +33,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 | 1 | Đồng phục và lời hứa | 1–36 | Xong, đã review, có `Quyen-1-Dong-phuc-va-loi-hua.docx` |
 | 2 | Rumba đối đầu | 37–76 | Xong, đã review, có `Quyen-2-Rumba-doi-dau.docx` |
 | 3 | Nhịp thứ tư chưa có kết | 77–116 | Xong, đã review, có `Quyen-3-Nhip-thu-tu-chua-co-ket.docx` |
-| 4 | Ba centimet | 117–156 | **Đang viết, xong đến chương 146.** Chương tiếp theo: **147 (POV Ôn Chi Hạ)** |
+| 4 | Ba centimet | 117–156 | **Đang viết, xong đến chương 152.** Chương tiếp theo: **153 (POV Ôn Chi Hạ)** |
 | 5 | Rumba tĩnh | 157–190 | Chưa viết |
 | 6 | Váy cưới | 191–212 | Chưa viết |
 | Phiên ngoại | | 8 chương | Chưa viết (chỉ ở đây mới được dùng POV nhân vật phụ) |
@@ -84,6 +84,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
   - **Cô Mão**: sạp vải.
   - **Bà hàng xóm** của nhà Tạ.
   - **Bác Lâm**: bảo vệ trường Tùng Bách.
+- **Nhân vật mới Q4 (147–152)**: **ông Lư Văn Khánh** (phòng 312, nhạc công già, vợ đã mất, huýt sáo Rumba mỗi chiều, gõ ba tiếng = "ta ở đây, chờ em ra"; bản thu cũ "Phòng hóa trang" thành nhạc bài Rumba mới); **chị Toàn Liên** (em gái bác Toàn, chủ nhà 412); **tiến sĩ Hạ Mẫn**, **Chủ tịch Quách Viễn** (Liên đoàn Quốc gia); **Paso** (mèo tam thể cái, nhặt 24/1, dậm chân khi đòi ăn).
 - **Thương hiệu**:
   - **Starcrest**: công ty quản lý hình ảnh.
   - **Sel Aurane**: đồng hồ của Estherwyn (Q2).
@@ -100,6 +101,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
   - Nhà họ Tạ: cây hoa giấy ở sân, bàn đá, cầu thang 14 bậc lên phòng áp mái.
   - Phố Ngư Phủ (tiệm sửa đài).
 - **Ngân Sơn**: thủ đô thể thao, nơi có **Trung tâm Huấn luyện Ngân Sơn**.
+  - **Khu tập thể Ngân Hạnh, nhà B, phòng 412** (tầng 4, 14 bậc mỗi tầng, bồn tắm sứ chân sư tử, giường 1m6, gương khung gỗ sồi, rèm xanh navy viền ruy băng đỏ): nhà hai người thuê chung từ 1/1 năm 25 tuổi. Hàng xóm tầng dưới: ông Lư (312).
   - **Phòng tập số ba** (6 ô cửa sổ, ghế gỗ của cô Tố Nga), kho dụng cụ phía sau.
   - Con đường ngân hạnh dài 300 m nối khu nhà tập với ký túc xá. **Cây ngân hạnh thứ bảy** là cây non, được buộc bằng khăn mận chín sau bão.
   - Ký túc xá nữ (phòng cô ở tầng 2, cuối hành lang; giờ giới nghiêm 22:30). Ký túc xá nam (phòng anh ở tầng 3, cửa sổ thứ tư từ trái sang; giường 90 phân; giữa phòng "ba mét vuông").
@@ -166,7 +168,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 - 111–112: 31/5 ở Hải Âu nhảy "Nhịp Thứ Tư" có kết trước cô Tuệ. Anh nói nghĩa từ Estherwyn, cô nói "Phải". Công khai với hai nhà.
 - 113–116: Tuyết Nghi tặng tinh dầu. Hộp bánh dừa thứ hai mươi. **Đêm đầu tiên 23/6, sinh nhật 24 của cô, trong phòng áp mái** (chương 115). Bà nội trao chìa khóa phòng áp mái. Ba phân.
 
-### Quyển 4 (chương 117–146 đã viết): "Ba centimet", từ cuối tháng Sáu đến 10/9 năm 24 tuổi
+### Quyển 4 (chương 117–152 đã viết): "Ba centimet", từ cuối tháng Sáu đến 10/9 năm 24 tuổi
 - **117** (CH): giờ giới nghiêm, bà Thẩm. Cô Tố Nga đo ba phân. Bánh tráng nướng ("một lần mỗi tuần").
 - **118** (KP): video ba centimet lan truyền. Diêu Mạn báo Phụ lục 4 của Corvane ("không công khai quan hệ tình cảm"). Tô Linh và Thiên Du giẫm chân nhau. Elodie gọi video. Lần đầu lẻn vào ký túc xá nam (Diệc Thần "đeo tai nghe"). Bà Thẩm đưa khăn.
 - **119** (CH): Giải mở rộng Ngân Sơn (17/7), thước kẻ màu hồng. Tám nhịp: "khép hai ngón tay". Trả lời phóng viên "Không bình luận". Cãi nhau rồi làm lành, đọc hợp đồng cùng nhau. Bình luận "kẻ phản bội năm xưa" xuất hiện.
@@ -200,9 +202,16 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 - **145** (CH): trại Vân Đình, cô phòng 307, anh phòng 407 ngay trên đầu (gõ trần/sàn). Nhảy với Diệc Thần 9 phân, Diệc Thần không chờ nửa nhịp ("không biết chờ cô ấy"); sau bốn ngày thì học được. Ăn chung nhà ăn, giẫm chân nhau dưới gầm bàn. Diệc Thần thú nhận với Tuyết Nghi chuyện gãy cổ tay phải năm 19 tuổi, **Tuyết Nghi trả lời "Phải"** (4/12). Báo chí rò rỉ: Rumba hai cặp tụt hạng 12 và 14, "bằng chứng khoa học". Đêm 7/12 hai người cùng nhảy một mình, cách nhau một tầng.
 - **146** (KP): nhảy với Tuyết Nghi 8 phân. Tuyết Nghi: "Cậu nhìn tôi, nhưng cậu chờ người khác… Không ai nhảy với ai." Thầy Nghiêm bảo Tuyết Nghi dẫn tám nhịp bằng "cái của cô" (cô giơ tay về phía bức tường ngăn hai phòng tập). Tiến sĩ Hạ cho anh xem dữ liệu nhịp tim: đêm 7/12 nhịp tim hai người trùng nhau qua 20 phân bê tông; chị không ghi vào báo cáo (chị đã ly hôn bạn nhảy Standard cũ). Video Bé Sương ở Sương Lĩnh tự làm "thí nghiệm" rồi bỏ đi về phía Khúc Bảo: "Con không đổi" (gợi lại Q1 chương 11: anh 12 tuổi, thầy Bạch bắt nhảy với An Nhiên một tháng). Bố cô lần đầu nhắn vào nhóm chat. Đêm 12/12 nhảy Rumba qua lớp bê tông, cùng gõ, đặt tay lên trần/sàn. Đêm 14/12, mai là giải kiểm tra.
 
+- **147** (CH): giải kiểm tra 15/12. Tám nhịp cuối mỗi người giơ tay về phía bạn nhảy của mình cách 12 m. Rumba hạng 11 và 13. Tiến sĩ Hạ: "Liên đoàn không cần dự phòng… cần bảo vệ nó"; phụ lục nhịp tim không chính thức khép biên bản; Chủ tịch Quách xin lỗi Lăng. Cha cha chia tay của Diệc Thần (yêu Tuyết Nghi từ năm 21 tuổi). 18h trán chạm trán ở hành lang; thầy Nghiêm đưa chìa khóa phòng tập phía tây (tắt camera đến nửa đêm).
+- **148** (KP): nhảy ở phòng tập phía tây; trả chìa khóa ("Mười bốn ngày. Tôi không ngủ được đêm nào", hủy chạy sáng). **Cảnh thân mật thứ tư** ở phòng 407 (tay đặt lên chỗ sàn từng gõ). Xoa lưng cho nhau ("Kỳ thứ hai"). Cô đề nghị thuê nhà ở chung ("Anh có được cấm không?" – "Không cấm"). 16/12 Tố Nga đo 3 phân, "tiến sĩ Hạ không có từ". Diệc Thần–Tuyết Nghi 4 phân. Khóe miệng thầy Nghiêm cong 2 mm.
+- **149** (CH): cãi nhau trên xe buýt, chốt: thuê nhà theo sức người nghèo hơn, chia đôi. **Sổ xanh** ghi luật: "Hạ đi chợ, Phong rửa bát, bánh tráng thứ Sáu Hạ trả, bánh dừa 23/6 Phong mua không chia". 18/12 Tố Nga đặt tên bài Rumba mới là "?". Chị **Toàn Liên** (em gái bác Toàn) cho thuê **Khu tập thể Ngân Hạnh, nhà B, phòng 412**, tầng 4, 14 bậc mỗi tầng, bồn tắm sứ chân sư tử. "Ai trả tiền nhà?" – "Hai người / Chia đôi". Nhảy trong căn hộ trống, **ông Lư** (phòng 312) huýt sáo Rumba. Ký hợp đồng 1/1, tên cô đứng trước.
+- **150** (KP): dọn nhà 10/1. Bà Thẩm tặng khăn mận chín đã giặt. Lăng gửi gương khung gỗ sồi ("hai đứa phải tự làm chứng cho nhau", "Giống sàn Solstice"). Mẹ cô gửi rèm xanh navy viền ruy băng đỏ (Thu khâu), bố cô gửi "Kỳ thứ ba". Giường 1m6 (ngủ giữa). Anh rửa bát ("Lần sau anh né"). Bồn tắm, nhảy trước gương, ông Lư gõ ba tiếng. Sáng: nửa cà phê nửa sữa. Ông Lư kể ba tiếng gõ nghĩa là "ta ở đây, chờ em ra" với người vợ đã mất.
+- **151** (CH): 24/1 mèo con tam thể cái 3 tháng dưới gầm cầu thang dậm chân (appel), đặt tên **Paso**. Tắm bồn, vết cào dưới ruy băng. 5h sáng Paso dậm chân. Sổ thú y "Chủ nuôi: Ôn Chi Hạ, Tạ Kỳ Phong", chia đôi tiền. 26/1 bài Rumba mới của Tố Nga dùng bản thu cũ "Phòng hóa trang" của **ông Lư Văn Khánh**; mở đầu đứng cạnh nhau, "Nhịp một: dậm chân. Như con mèo tên Paso." 28/1 cô Tuệ báo mái Hải Âu đã sửa bằng tiền thưởng Marivonne (hai người chia đôi), nước mưa làm lộ chữ **"P. H."** anh khắc bằng compa năm 12 tuổi cạnh vết nứt gương.
+- **152** (KP): Tết muộn (năm nhuận), 28 Tết = 14/2. Tàu đêm mang Paso ("Lần đầu đi tàu… Em cũng sợ"). Bà nội gõ gậy ba tiếng, Paso dậm ba cái; ông nội xưa cũng mang về một con mèo tam thể, chết năm Phong 1 tuổi. 30 Tết dì Lan trao tập 53 tờ bìa lụa đỏ cho bố cô: "Anh không nợ ai. Anh trả đủ rồi. Từ tờ thứ nhất." Anh hứa đóng tập 36 tờ của mình (đã nhận 3, còn 33). Giao thừa: em Thu (18) tuyên bố thi sư phạm thể dục ở Ngân Sơn tháng Sáu, cuối tuần làm trợ giảng Hải Âu (cô Tuệ đồng ý); bố cô: "Đỗ thì bố chở… Tháng Ba bố được lái đèo". Lăng nhắn: bà đặt hai tấm gương, giữ một; anh mời mùng hai đến phòng 412. Mùng một ở Hải Âu: xem "P. H.", cô Tuệ kể năm ấy đứng ngoài cửa chờ anh khắc xong. Nhảy bài mới, cô huýt sáo (chưa có tám nhịp cuối). Trang cuối sổ điểm danh: "Mùng một Tết. Hai đứa này. Không cần số nào nữa." Thu mang Paso "xông đất Hải Âu".
+
 ## 8. Kế hoạch Quyển 4 còn lại (147–156) và các mốc sau
 
-> Tiếp theo: **147 (CH)** giải kiểm tra 15/12 với cặp đổi (Rumba thấp, "bằng chứng khoa học"; tiến sĩ Hạ kết luận gì?). Sau giải, hai cặp đổi lại. **148 (KP): đêm được ghép lại, cảnh thân mật dồn nén hai tuần** (cảnh thứ tư của Q4), Rumba hôm sau khác đi. **149–156** mùa xuân: dọn về sống chung ở căn hộ gần Ngân Sơn, mèo tam thể Paso, Tết (dì Lan trao tập 53 tờ cho bố cô), em Thu thi xong phụ dạy Hải Âu (đề cương ghi "19 tuổi", có thể linh hoạt), chiếc xe tải trong kho Khúc Nam, đôi giày Estherwyn giữ đến 23/6.
+> Tiếp theo: **153–156** (mùa xuân, khép Q4): mùng hai Lăng đến phòng 412; tháng Ba bố cô được lái đèo, chuộc lại chiếc xe tải trong kho Khúc Nam (bọc vô lăng); em Thu ôn thi, cuối tuần trợ giảng Hải Âu; tám nhịp cuối và tên bài Rumba mới của Tố Nga (đang là "?"); thói quen bồn tắm, xoa lưng; đôi giày Estherwyn giữ đến 23/6; Elodie, Isadora. Kết Q4 ở 156 khoảng cuối xuân, cài sang Q5 (vô địch thế giới, cầu hôn ở Cung Solstice).
 
 > Mạch 133–140 (nợ nhà Ôn, làm lành) đã xong. Còn treo: hãng nước khoáng trả tiền cuối tháng Mười; em Thu tập Rumba, muốn thi sư phạm thể dục (cài sẵn cho vai trợ giảng ở Hải Âu); chiếc xe tải trong kho Khúc Nam; giày Estherwyn giữ đến sinh nhật cô; chuẩn bị Marivonne (chung kết 22/11).
 
