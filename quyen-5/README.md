@@ -16,3 +16,9 @@
 | [168](chuong-168.md) | Sáu – năm | Tạ Kỳ Phong | 10 tháng Chín |
 | [169](chuong-169.md) | Ba phút cát | Ôn Chi Hạ | 26 tháng Chín – 15 tháng Mười |
 | [170](chuong-170.md) | Năm mươi sáu bậc xuống | Tạ Kỳ Phong | 15 tháng Mười |
+| [171](chuong-171.md) | Gội đầu | Ôn Chi Hạ | 17–28 tháng Mười |
+| [172](chuong-172.md) | Người đứng thay | Tạ Kỳ Phong | 30 tháng Mười |
+| [173](chuong-173.md) | Trục | Ôn Chi Hạ | 17–22 tháng Mười Một |
+| [174](chuong-174.md) | Hai phân | Tạ Kỳ Phong | 4 tháng Mười Hai |
+| [175](chuong-175.md) | Sáu mươi hai | Ôn Chi Hạ | 5–31 tháng Mười Hai |
+| [176](chuong-176.md) | Ở đây | Tạ Kỳ Phong | 2 tháng Một |
