@@ -33,7 +33,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 | 1 | Đồng phục và lời hứa | 1–36 | Xong, đã review, có `Quyen-1-Dong-phuc-va-loi-hua.docx` |
 | 2 | Rumba đối đầu | 37–76 | Xong, đã review, có `Quyen-2-Rumba-doi-dau.docx` |
 | 3 | Nhịp thứ tư chưa có kết | 77–116 | Xong, đã review, có `Quyen-3-Nhip-thu-tu-chua-co-ket.docx` |
-| 4 | Ba centimet | 117–156 | Xong (chưa review, chưa xuất docx) |
+| 4 | Ba centimet | 117–156 | Xong, đã review, có `Quyen-4-Ba-centimet.docx` |
 | 5 | Rumba tĩnh | 157–190 | **Đang viết, xong đến chương 158.** Chương tiếp theo: **159 (POV Ôn Chi Hạ)** |
 | 6 | Váy cưới | 191–212 | Chưa viết |
 | Phiên ngoại | | 8 chương | Chưa viết (chỉ ở đây mới được dùng POV nhân vật phụ) |
@@ -168,7 +168,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 - 111–112: 31/5 ở Hải Âu nhảy "Nhịp Thứ Tư" có kết trước cô Tuệ. Anh nói nghĩa từ Estherwyn, cô nói "Phải". Công khai với hai nhà.
 - 113–116: Tuyết Nghi tặng tinh dầu. Hộp bánh dừa thứ hai mươi. **Đêm đầu tiên 23/6, sinh nhật 24 của cô, trong phòng áp mái** (chương 115). Bà nội trao chìa khóa phòng áp mái. Ba phân.
 
-### Quyển 4 (chương 117–156, đã xong): "Ba centimet", từ cuối tháng Sáu đến 10/9 năm 24 tuổi
+### Quyển 4 (chương 117–156, đã xong): "Ba centimet", từ cuối tháng Sáu năm 24 tuổi đến 25/5 năm sau
 - **117** (CH): giờ giới nghiêm, bà Thẩm. Cô Tố Nga đo ba phân. Bánh tráng nướng ("một lần mỗi tuần").
 - **118** (KP): video ba centimet lan truyền. Diêu Mạn báo Phụ lục 4 của Corvane ("không công khai quan hệ tình cảm"). Tô Linh và Thiên Du giẫm chân nhau. Elodie gọi video. Lần đầu lẻn vào ký túc xá nam (Diệc Thần "đeo tai nghe"). Bà Thẩm đưa khăn.
 - **119** (CH): Giải mở rộng Ngân Sơn (17/7), thước kẻ màu hồng. Tám nhịp: "khép hai ngón tay". Trả lời phóng viên "Không bình luận". Cãi nhau rồi làm lành, đọc hợp đồng cùng nhau. Bình luận "kẻ phản bội năm xưa" xuất hiện.

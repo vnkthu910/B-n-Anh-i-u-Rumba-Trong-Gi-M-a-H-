@@ -165,7 +165,7 @@ Hàng ghế đầu. Lăng ngồi chính giữa. Áo dài lụa xám. Bên trái 
 
 Lăng nghiêng đầu nói gì đó với ông Lư. Ông Lư gật đầu.
 
-Mười hai năm, Lăng chưa ngồi cạnh ai ở hàng ghế đầu mà nói chuyện trước khi nhạc nổi lên.
+Anh chưa bao giờ thấy mẹ quay sang nói chuyện với người ngồi cạnh trước khi nhạc nổi lên.
 
 Đèn sân khấu dịu xuống.
 

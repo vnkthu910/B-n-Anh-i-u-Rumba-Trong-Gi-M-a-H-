@@ -4,7 +4,7 @@ Tám tháng Chín. Sáu giờ sáng. Bệnh viện huyện, chân đèo Sương 
 
 Tạ Kỳ Phong ngồi trên băng ghế đá ở sân sau khoa Hô hấp. Một cây đa già trùm bóng xuống nửa sân. Mấy bệnh nhân mặc áo kẻ sọc đi dạo chậm quanh gốc đa. Một bà cụ ngồi xe lăn, con gái đẩy. Một ông cụ chống nạng, tập đi từng bước.
 
-Anh không ngủ đêm qua. Không phải vì lo. Vì em Thu khóc đến một giờ sáng, cô ngồi với em Thu đến hai giờ. Anh ngồi ở phòng khách nghe hai chị em nói chuyện qua vách gỗ. Không nghe rõ chữ. Chỉ nghe giọng. Giọng cô. Rồi giọng em Thu. Rồi im lặng. Rồi tiếng em Thu cười. Khàn khàn. Rồi im.
+Anh không ngủ đêm qua. Không phải vì lo. Vì em Thu khóc đến một giờ sáng, cô ngồi với em Thu đến hai giờ. Anh ngồi ở phòng khách nghe hai chị em nói chuyện qua vách gỗ. Không nghe rõ chữ. Chỉ nghe giọng. Giọng cô. Rồi giọng em Thu. Rồi im lặng. Rồi tiếng em Thu cười. Khàn khàn. Rồi im. Rồi cô ra phòng khách. Đứng với anh giữa nền xi măng. Không nhạc. Đến gần ba giờ.
 
 Năm giờ, anh đi xe ôm xuống bệnh viện. Mang cháo cho mẹ cô.
 

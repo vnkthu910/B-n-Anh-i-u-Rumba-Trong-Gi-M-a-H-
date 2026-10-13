@@ -447,3 +447,45 @@ Cô ôm em gái.
 Em Thu khóc. Lần này thành tiếng. Như một đứa trẻ.
 
 Ở phòng khách, cô nghe tiếng bát đũa. Anh đang dọn mâm cơm. Một mình. Rất khẽ. Như sợ làm hai chị em giật mình.
+
+Hai giờ sáng, em Thu ngủ.
+
+Cô kéo chăn cho em gái. Khép cửa. Đi ra phòng khách.
+
+Mâm cơm đã dọn. Chiếu đã cuộn. Bát đũa úp trên giá. Anh đứng giữa phòng khách trống. Hai tay buông thõng. Không biết làm gì tiếp.
+
+Cô đi đến. Đứng trước mặt anh.
+
+Không nói gì. Đặt tay trái lên vai anh. Tay phải đặt vào tay anh.
+
+Tư thế đóng.
+
+Anh nhìn cô.
+
+"Không có nhạc." Anh nói.
+
+"Không cần." Cô nói.
+
+Hai. Ba. Bốn. Một.
+
+Cô bước. Anh theo. Không phải anh dẫn. Đêm nay cô dẫn. Rumba cơ bản. Bước tới. Bước lui. Chậm hơn nhạc thật một nửa. Phòng khách ba mét. Chân trần trên nền xi măng còn hơi ấm của ngày.
+
+Không xoay. Không Alemana. Không nửa nhịp.
+
+Chỉ bước tới, bước lui. Như người đi tới đi lui trong hành lang bệnh viện.
+
+Đến nhịp thứ tư của ô nhịp thứ tám, cô dừng. Không bước nữa. Trán tựa vào ngực anh.
+
+Nhịp chờ.
+
+Anh đứng yên. Tay vẫn giữ tay cô. Không ôm. Chờ.
+
+"Mai em nói với anh." Cô nói. Vào ngực áo anh. "Em chưa biết nói gì. Nhưng mai em nói."
+
+"Ừ."
+
+"Đêm nay em chỉ muốn đứng."
+
+"Ừ." Anh nói. "Đứng thì anh đứng được."
+
+Họ đứng như thế giữa phòng khách căn nhà cấp bốn. Không đếm nữa. Ngoài sân, giàn bầu xào xạc. Sương xuống dốc thứ ba.
