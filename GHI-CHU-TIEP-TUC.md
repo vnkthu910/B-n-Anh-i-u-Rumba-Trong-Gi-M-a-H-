@@ -1,5 +1,7 @@
 # Ghi chú tiếp tục viết – "Bên Anh Điệu Rumba Trong Gió Mùa Hạ"
 
+> **DỰ ÁN ĐÃ KẾT THÚC.** Hoàn thành 212 chương chính (6 quyển, đã chốt) và 8 phiên ngoại. Văn án: `van-an.md`. File docx: `Quyen-1` … `Quyen-6`, `Phien-ngoai.docx`.
+
 Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển 6, chương 212 – hết phần chính) và các quy ước, để tiếp tục viết ở một đoạn chat mới. Đọc kèm: `de-cuong.docx` (đề cương gốc của tác giả), `van-an.md`, và `README.md` trong từng thư mục quyển.
 
 ---
