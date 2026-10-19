@@ -18,3 +18,9 @@
 | [204](chuong-204.md) | Có người về | Tạ Kỳ Phong | 6 tháng Mười Hai, "Nhịp Thứ Tư" phần sau |
 | [205](chuong-205.md) | Giữ hộ | Ôn Chi Hạ | Chiều 6 tháng Mười Hai, Hải Âu và bữa cơm |
 | [206](chuong-206.md) | Mặt B, phút mười chín | Tạ Kỳ Phong | Đêm 6 tháng Mười Hai, phòng áp mái |
+| [207](chuong-207.md) | Búp bê không chân | Ôn Chi Hạ | 11–13 tháng Mười Hai, trăng mật ở Aldmere |
+| [208](chuong-208.md) | Danh sách triệu tập | Tạ Kỳ Phong | 28 tháng Hai – 8 tháng Sáu (27 tuổi) |
+| [209](chuong-209.md) | Hai mươi tám năm | Ôn Chi Hạ | 21–23 tháng Sáu, Marivonne, bảo vệ chức vô địch |
+| [210](chuong-210.md) | Vệt nắng cuối | Tạ Kỳ Phong | 21 tháng Sáu năm sau (28 tuổi), Marivonne, giải đấu cuối |
+| [211](chuong-211.md) | Tấm thứ sáu | Ôn Chi Hạ | 15–18 tháng Bảy, rời nhà B, nhận Hải Âu |
+| [212](chuong-212.md) | Hai, ba, bốn, một | Tạ Kỳ Phong | 7 tháng Chín (30 tuổi), lớp nhập môn ở Hải Âu |

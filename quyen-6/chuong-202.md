@@ -222,7 +222,7 @@ Bà nội nhìn sang hàng ghế bên phải. Nhìn mẹ cô.
 
 Mẹ cô nhìn bà nội.
 
-"Từ hôm ấy." Bà nội nói. "Mỗi tối tôi bật đèn phòng áp mái. Ai đi tối chưa về thì thấy. Thằng cháu tôi đi Aldmere năm năm. Năm năm tôi bật."
+"Ông nhà tôi đi biển." Bà nội nói. "Mỗi tối tôi bật đèn phòng áp mái. Ông ngoài khơi nhìn vào, thấy ô cửa sổ tròn sáng thì biết nhà còn có người chờ. Ông mất, tôi vẫn bật. Từ hôm ấy thì bật cho hai đứa nó. Đi học về muộn. Đi tập về muộn. Thằng cháu tôi đi Aldmere năm năm. Năm năm tôi bật."
 
 Bà nội gõ gậy. Một tiếng.
 
