@@ -34,3 +34,5 @@
 | [186](chuong-186.md) | Thứ năm | Tạ Kỳ Phong | 21 tháng Sáu (Hạ chí), sáng – 20:58 |
 | [187](chuong-187.md) | Ở đây | Ôn Chi Hạ | 21 tháng Sáu, chung kết Rumba |
 | [188](chuong-188.md) | Nốt kết | Tạ Kỳ Phong | 21 tháng Sáu, đêm |
+| [189](chuong-189.md) | Hộp thứ hai mươi hai | Ôn Chi Hạ | 22–23 tháng Sáu, Marivonne, sinh nhật 26 |
+| [190](chuong-190.md) | Phòng 411 | Tạ Kỳ Phong | 25 tháng Sáu – 1 tháng Bảy, Ngân Sơn |
