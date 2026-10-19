@@ -136,7 +136,7 @@ Bảy giờ sáng. Sân nhà văn hóa phường. Cuối phố Lưới Biển.
 
 Sân xi măng. Ba cây phượng. Tháng Mười Hai, phượng trơ cành, lá kim còn lơ thơ. Cây thứ ba rụng nhiều hơn hai cây kia. Lá vàng nhỏ như vụn giấy trên mặt xi măng.
 
-Tòa nhà văn hóa ba tầng ở góc. Cầu thang ngoài trời. Tầng ba, cửa sổ Hải Âu mở. Rèm xanh mới.
+Tòa nhà văn hóa ba tầng ở góc. Tường vôi vàng bong tróc. Tầng ba, cửa sổ Hải Âu mở. Rèm xanh mới.
 
 Chiếc xe tải sơn xanh đỗ ở cổng phía phố Lưới Biển.
 
