@@ -62,7 +62,6 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 | 5 | Rumba tĩnh | 157–190 | Xong, đã review, có `Quyen-5-Rumba-tinh.docx` |
 | 6 | Váy cưới | 191–212 | Xong, đã review, có `Quyen-6-Vay-cuoi.docx`. **Đã chốt.** |
 | Phiên ngoại | | 8 chương | **Xong (chưa review, chưa xuất docx).** |
-| Phiên ngoại | | 8 chương | Chưa viết (chỉ ở đây mới được dùng POV nhân vật phụ) |
 
 ## 4. Nhân vật
 
