@@ -22,3 +22,9 @@
 | [174](chuong-174.md) | Hai phân | Tạ Kỳ Phong | 4 tháng Mười Hai |
 | [175](chuong-175.md) | Sáu mươi hai | Ôn Chi Hạ | 5–31 tháng Mười Hai |
 | [176](chuong-176.md) | Ở đây | Tạ Kỳ Phong | 2 tháng Một |
+| [177](chuong-177.md) | Số đeo lưng sáu mươi hai | Ôn Chi Hạ | 15–16 tháng Một, vòng loại Vân Đình |
+| [178](chuong-178.md) | Có người đây | Tạ Kỳ Phong | 16 tháng Một |
+| [179](chuong-179.md) | Xe tải xuống Nguyệt Loan | Ôn Chi Hạ | 29 Tết – mùng một, Nguyệt Loan |
+| [180](chuong-180.md) | Sạp vàng thứ hai | Tạ Kỳ Phong | Mùng ba Tết, chợ Vọng Hải |
+| [181](chuong-181.md) | Ba vòng | Ôn Chi Hạ | 13 tháng Ba – 20 tháng Tư |
+| [182](chuong-182.md) | Gối phải | Tạ Kỳ Phong | 12–20 tháng Năm |
