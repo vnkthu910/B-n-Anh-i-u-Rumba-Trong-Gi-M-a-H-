@@ -8,3 +8,5 @@
 | [4](phien-ngoai-4.md) | Gửi nhầm địa chỉ | Isadora Wren | 22–26 tuổi, Aldmere và Marivonne |
 | [5](phien-ngoai-5.md) | Dưới chiếc ô đen | Mạc Thiên Du | Thiên Du 12–20 tuổi (hai người chính 22–30) |
 | [6](phien-ngoai-6.md) | Dậm chân | Mèo Paso | 25–30 tuổi |
+| [7](phien-ngoai-7.md) | Có người ở đây | Ôn Chi Hạ | 14 tháng Mười Một – 6 tháng Mười Hai năm 30 tuổi (sau chương 212) |
+| [8](phien-ngoai-8.md) | Jive | Ôn Đại Sơn (bố cô) | Tết năm 31 tuổi, Nguyệt Loan |
