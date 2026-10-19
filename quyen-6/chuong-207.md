@@ -396,7 +396,7 @@ Ashby nhìn cô gái đang đỡ ông cụ.
 
 Ngày mười ba. Nhà hát Hoàng gia Aldmere. Cúp Kim Diệp, chặng ba.
 
-Hai người ngồi trên khán đài. Hàng thứ mười. Như thầy Lucien ở Marivonne.
+Hai người ngồi trên khán đài. Hàng thứ mười. Như bố ở Marivonne năm ngoái.
 
 Không số đeo lưng. Không gel. Không váy thi.
 

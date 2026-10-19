@@ -484,11 +484,11 @@ Anh nhìn ông Lư.
 
 Cô đứng sau anh. Không nói gì.
 
-"Năm cuối thì phải có người ngồi xem." Ông Lư nói. "Ngồi hàng thứ mười. Như ông thầy người Estherwyn."
+"Năm cuối thì phải có người ngồi xem." Ông Lư nói. "Ngồi hàng thứ mười. Như bố con bé năm ấy."
 
 "Ông ngồi hàng nào cũng được ạ."
 
-"Hàng thứ mười." Ông Lư nói. "Ta đọc báo. Thằng Hàn Duật viết. Người ngồi hàng thứ mười nghe rõ nhất."
+"Hàng thứ mười." Ông Lư nói. "Ta đọc báo. Thằng Hàn Duật viết. Bố con bé ngồi hàng thứ mười. Đứng dậy trước cả Cung Solstice."
 
 Ông Lư quay vào phòng. Rồi quay ra. Tay cầm một tờ giấy nhạc.
 
