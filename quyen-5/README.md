@@ -28,3 +28,9 @@
 | [180](chuong-180.md) | Sạp vàng thứ hai | Tạ Kỳ Phong | Mùng ba Tết, chợ Vọng Hải |
 | [181](chuong-181.md) | Ba vòng | Ôn Chi Hạ | 13 tháng Ba – 20 tháng Tư |
 | [182](chuong-182.md) | Gối phải | Tạ Kỳ Phong | 12–20 tháng Năm |
+| [183](chuong-183.md) | Bọc vô lăng trên máy bay | Ôn Chi Hạ | 8–9 tháng Sáu |
+| [184](chuong-184.md) | Vệt nắng bốn mét | Tạ Kỳ Phong | 10–12 tháng Sáu, Marivonne |
+| [185](chuong-185.md) | Nhịp lặng | Ôn Chi Hạ | 17–20 tháng Sáu |
+| [186](chuong-186.md) | Thứ năm | Tạ Kỳ Phong | 21 tháng Sáu (Hạ chí), sáng – 20:58 |
+| [187](chuong-187.md) | Ở đây | Ôn Chi Hạ | 21 tháng Sáu, chung kết Rumba |
+| [188](chuong-188.md) | Nốt kết | Tạ Kỳ Phong | 21 tháng Sáu, đêm |

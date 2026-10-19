@@ -260,7 +260,7 @@ Anh đứng im ở chiếu nghỉ tầng bốn.
 
 Anh không nói gì.
 
-"Hai năm." Thầy Lucien nói. "Cô ấy học đọc con. Thầy xem video. Thầy xem bằng tai. Ở Vân Đình, mười sáu nhịp đầu, cô ấy mở tay ở bước thứ mười. Không phải bước thứ chín. Không phải mười một. Mười. Vì ở bước thứ mười, con thở ra. Thầy nghe thấy con thở. Cô ấy nghe thấy trước thầy."
+"Hai năm." Thầy Lucien nói. "Cô ấy học đọc con. Thầy xem video. Thầy xem bằng tai. Ở Vân Đình, mười sáu nhịp đầu, cô ấy mở tay ở bước thứ mười. Không phải bước thứ chín. Không phải mười một. Mười. Vì ở bước thứ chín, con thở ra. Nửa bước sau, cô ấy mở tay. Thầy nghe thấy con thở. Cô ấy nghe thấy trước thầy."
 
 Anh đứng ở chiếu nghỉ. Gió cầu thang. Tiếng nước chảy sau cánh cửa phòng tắm đã tắt.
 
@@ -430,4 +430,4 @@ Không có vệt nắng nào trong phòng tập số ba. Chỉ có ánh đèn hu
 
 Bước thứ mười, cô mở tay.
 
-Đúng chỗ anh thở ra.
+Nửa bước sau chỗ anh thở ra.
