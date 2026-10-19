@@ -2,7 +2,7 @@ const fs=require('fs'),path=require('path');
 const {Document,Packer,Paragraph,TextRun,HeadingLevel,AlignmentType,PageBreak,Footer,PageNumber,TableOfContents}=require('docx');
 const [,,dirArg,bookTitle,rangeText,outFile]=process.argv;
 const dir=path.resolve(dirArg);
-const files=fs.readdirSync(dir).filter(f=>/^chuong-\d+\.md$/.test(f)).sort((a,b)=>parseInt(a.match(/\d+/)[0])-parseInt(b.match(/\d+/)[0]));
+const files=fs.readdirSync(dir).filter(f=>/^(chuong|phien-ngoai)-\d+\.md$/.test(f)).sort((a,b)=>parseInt(a.match(/\d+/)[0])-parseInt(b.match(/\d+/)[0]));
 function runs(text,base={}){
   const out=[];const re=/(\*\*[^*]+\*\*|\*[^*]+\*)/g;let last=0,m;
   while((m=re.exec(text))){ if(m.index>last) out.push(new TextRun({text:text.slice(last,m.index),...base}));

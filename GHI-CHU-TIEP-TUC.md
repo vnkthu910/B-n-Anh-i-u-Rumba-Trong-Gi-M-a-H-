@@ -61,7 +61,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 | 4 | Ba centimet | 117–156 | Xong, đã review, có `Quyen-4-Ba-centimet.docx` |
 | 5 | Rumba tĩnh | 157–190 | Xong, đã review, có `Quyen-5-Rumba-tinh.docx` |
 | 6 | Váy cưới | 191–212 | Xong, đã review, có `Quyen-6-Vay-cuoi.docx`. **Đã chốt.** |
-| Phiên ngoại | | 8 chương | **Xong (chưa review, chưa xuất docx).** |
+| Phiên ngoại | | 8 chương | Xong, có `Phien-ngoai.docx`. |
 
 ## 4. Nhân vật
 
