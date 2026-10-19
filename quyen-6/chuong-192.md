@@ -342,7 +342,7 @@ Cô Tuệ ngồi trên ghế gỗ. Nhìn em Thu rất lâu.
 
 "Dạ."
 
-"Bốn mươi năm cô dạy ở đây." Cô Tuệ nói. "Học trò cô nghĩ ra nhiều thứ lắm. Chưa đứa nào nghĩ ra mang cả một cái sàn nhà từ trên núi xuống."
+"Năm mươi năm cô dạy ở đây." Cô Tuệ nói. "Học trò cô nghĩ ra nhiều thứ lắm. Chưa đứa nào nghĩ ra mang cả một cái sàn nhà từ trên núi xuống."
 
 Em Thu đỏ mặt. Tai cũng đỏ.
 

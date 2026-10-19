@@ -53,7 +53,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 | 3 | Nhịp thứ tư chưa có kết | 77–116 | Xong, đã review, có `Quyen-3-Nhip-thu-tu-chua-co-ket.docx` |
 | 4 | Ba centimet | 117–156 | Xong, đã review, có `Quyen-4-Ba-centimet.docx` |
 | 5 | Rumba tĩnh | 157–190 | Xong, đã review, có `Quyen-5-Rumba-tinh.docx` |
-| 6 | Váy cưới | 191–212 | **Xong phần chính (191–212), chưa review.** Tiếp theo: review Q6 / xuất docx / **8 phiên ngoại** |
+| 6 | Váy cưới | 191–212 | Xong, đã review, có `Quyen-6-Vay-cuoi.docx`. Tiếp theo: **8 phiên ngoại** |
 | Phiên ngoại | | 8 chương | Chưa viết (chỉ ở đây mới được dùng POV nhân vật phụ) |
 
 ## 4. Nhân vật

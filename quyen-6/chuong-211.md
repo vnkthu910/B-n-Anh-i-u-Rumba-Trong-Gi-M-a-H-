@@ -60,7 +60,7 @@ Paso ngồi trên nóc thùng *Sách*. Nhìn. Không dậm chân.
 
 "Ba năm rưỡi nó chưa ở đâu khác."
 
-"Nó đi tàu năm lần rồi." Cô nói. "Nó biết đi tàu là về đâu."
+"Nó đi tàu nhiều lần rồi." Cô nói. "Nó biết đi tàu là về đâu."
 
 Paso nhìn hai người. Rồi nhảy xuống. Đi vào phòng ngủ. Nằm lên chỗ trống trên giường. Chỗ giữa. Giường một mét sáu. Hai người ngủ giữa.
 
