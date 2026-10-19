@@ -16,15 +16,15 @@ Ba năm rưỡi. Mười bảy luật. Hai thứ chữ.
 
 Cô lật từng trang.
 
-*Một. Thuê theo sức người nghèo hơn. Chia đôi.*
+*1. Thuê theo sức người nghèo hơn. Chia đôi.*
 
-Tháng Một năm hai mươi lăm tuổi. Bàn bếp. Anh muốn thuê căn hộ có thang máy. Cô bảo không. Cô bảo năm mươi sáu bậc thì có sao. Anh bảo lưng em. Cô bảo lưng em leo được năm mươi sáu bậc thì lưng em mới biết lưng em còn tốt. Rồi cô viết luật số một.
+Mùa đông năm hai mươi bốn tuổi. Lúc tìm nhà. Anh muốn thuê căn hộ có thang máy. Cô bảo không. Cô bảo năm mươi sáu bậc thì có sao. Anh bảo lưng em. Cô bảo lưng em leo được năm mươi sáu bậc thì lưng em mới biết lưng em còn tốt. Rồi cô viết luật số một.
 
-*Năm. Không làm gì một mình. Nói với nhau trước khi quyết.*
+*5. Nói trước. Kể cả chuyện chắc chắn bị cấm.*
 
-*Mười một. Ai lên được năm mươi sáu bậc thì ăn cơm.*
+*11. Ai lên được năm mươi sáu bậc thì ăn cơm.*
 
-*Mười lăm. Nhà bên cạnh có người. Bên dưới có người. Gõ thì có người nghe.*
+*15. Nhà bên cạnh có người. Bên dưới có người. Gõ thì có người nghe.*
 
 Cô dừng ở luật mười lăm.
 

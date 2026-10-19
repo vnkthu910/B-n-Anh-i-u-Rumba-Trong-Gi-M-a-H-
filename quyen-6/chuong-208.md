@@ -4,7 +4,7 @@ Ngày hai mươi tám tháng Hai. Vân Đình. Chung kết Cúp Kim Diệp.
 
 Tạ Kỳ Phong đứng ở cánh gà. Số đeo lưng mười bốn. Sau lưng anh, cô buộc lại dây giày Latin. Gót sáu phân. Chân phải trước. Như mọi lần.
 
-Ba năm trước, cũng ở nhà thi đấu này, cũng chung kết Cúp Kim Diệp, cô đứng ở cánh gà. Tay cô lạnh. Anh không hỏi vì sao. Năm ấy anh chưa biết hỏi.
+Bốn năm trước, cũng ở nhà thi đấu này, cũng chung kết Cúp Kim Diệp, cô đứng ở cánh gà. Tay cô lạnh. Anh không hỏi vì sao. Năm ấy anh chưa biết hỏi.
 
 Hôm nay tay cô ấm.
 
@@ -178,7 +178,7 @@ Cô nhìn anh.
 
 Anh nhìn cô.
 
-Luật số năm. *Không làm gì một mình. Nói với nhau trước khi quyết.*
+Luật số năm. *Nói trước. Kể cả chuyện chắc chắn bị cấm.*
 
 Anh không cần nói. Ở Hải Âu, ngày sáu tháng Mười Hai, hai người đã nói với cô Tuệ: *Hai năm.*
 
@@ -284,7 +284,7 @@ Ngày hai mươi tháng Tư. Trung tâm Huấn luyện Ngân Sơn. Cổng chính
 
 Mưa.
 
-Danh sách triệu tập đội tuyển Latin quốc gia mùa giải mới công bố lúc bốn giờ chiều. Dán trên bảng tin cạnh phòng bảo vệ. Như năm năm trước.
+Danh sách triệu tập đội tuyển Latin quốc gia mùa giải mới công bố lúc bốn giờ chiều. Trên trang thông báo của Liên đoàn. Năm nay Trung tâm in thêm một bản. Dán trên bảng tin cạnh phòng bảo vệ.
 
 Anh đứng dưới mái hiên phòng bảo vệ. Cầm một chiếc ô đen.
 
@@ -312,7 +312,7 @@ Bác Toàn nhìn ra màn mưa.
 
 Anh không nói gì.
 
-Năm năm trước. Mùa xuân. Hai mươi hai tuổi. Anh vừa từ Aldmere về. Cô vừa từ Sương Lĩnh xuống. Danh sách dán trên bảng tin này. Hai cái tên trên cùng một tờ giấy. Không cùng một dòng.
+Năm năm trước. Mùa xuân. Hai mươi hai tuổi. Anh vừa từ Aldmere về. Cô vừa từ Sương Lĩnh xuống. Danh sách đăng trên trang của Liên đoàn. Nền trắng chữ đen. Hai cái tên ở hai danh sách. Latin nam. Latin nữ. Không cùng một dòng.
 
 Anh cười với tất cả mọi người. Rồi quay sang cô.
 

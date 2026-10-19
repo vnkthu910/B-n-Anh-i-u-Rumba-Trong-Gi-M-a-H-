@@ -428,7 +428,7 @@ Anh đi đến mép sàn. Chìa tay.
 
 Lăng đặt tay vào.
 
-Bước lên sàn gỗ. Chân vẫn mang giày. Giày Standard gót năm phân. Hai mươi ba năm giải nghệ. Lăng mang theo đôi giày ấy từ Ngân Sơn.
+Bước lên sàn gỗ. Chân vẫn mang giày. Giày Standard gót năm phân. Hai mươi sáu năm giải nghệ. Lăng mang theo đôi giày ấy từ Ngân Sơn.
 
 Khung tay Standard. Tay trái mẹ đặt lên vai anh.
 
@@ -468,7 +468,7 @@ Dừng.
 
 Lăng buông tay anh. Đứng thẳng.
 
-Lăng quay sang ông Lư. Cúi chào dàn nhạc. Như hai mươi ba năm.
+Lăng quay sang ông Lư. Cúi chào dàn nhạc. Như hai mươi sáu năm.
 
 Rồi Lăng quay sang hàng ghế đầu. Bên phải lối đi.
 

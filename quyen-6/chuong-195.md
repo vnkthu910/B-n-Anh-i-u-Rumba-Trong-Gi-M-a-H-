@@ -126,6 +126,10 @@ Bố biết cô sẽ cầm.
 
 "Năm lớp bốn." Anh nói. "Mưa giông ở Hải Âu. Mất điện. Em đứng sát tấm gương nứt. Không nói gì. Tay em miết vào đốt ngón trỏ."
 
+"Trên sàn em không giật mình bao giờ."
+
+"Ừ." Anh nói. "Trên sàn thì không. Xuống sàn thì em miết ngón tay."
+
 Cô cúi xuống nhìn tay mình. Ngón cái tay phải đang miết vào đốt ngón trỏ.
 
 Cô dừng tay.
@@ -516,7 +520,7 @@ Anh ngồi cạnh cô. Không nghe rõ. Nhưng anh đặt tay lên lưng cô. Ng
 
 Cô cúi đầu.
 
-Một phút bốn mươi giây cho năm mươi hai mét. Cô chưa bao giờ đếm. Cô chỉ biết cô đi chậm hơn người khác. Từ năm mười tám tuổi. Từ Sương Lĩnh. Từ con dốc thứ ba.
+Một phút bốn mươi giây cho năm mươi hai mét. Cô chưa bao giờ đếm. Cô chỉ biết cô đi chậm hơn người khác. Từ năm mười bảy tuổi. Từ Sương Lĩnh. Từ con dốc thứ ba.
 
 Mẹ đếm.
 

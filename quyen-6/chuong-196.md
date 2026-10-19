@@ -236,7 +236,7 @@ Trên bàn vẽ, một tờ giấy can khổ lớn. Bản vẽ mặt bằng.
 
 Anh đứng sau lưng bố. Nhìn qua vai.
 
-Ba cây phượng. Đánh số một, hai, ba. Cây thứ ba gần cổng phía phố Lưới Biển. Ô vuông bốn mét nhân bốn mét giữa cây thứ hai và cây thứ ba, gạch chéo bút chì: *Sàn gỗ Sương Lĩnh.* Hai chiếc ghế ở hàng đầu, cạnh mép sàn: *Cô Tuệ. Bà.* Bàn ăn xếp hình chữ U quanh sân. Cầu thang nhà văn hóa ở góc trên bên trái.
+Ba cây phượng. Đánh số một, hai, ba. Cây thứ ba ở góc sân, đầu phố, chỗ rẽ lên dốc. Ô vuông bốn mét nhân bốn mét giữa cây thứ hai và cây thứ ba, gạch chéo bút chì: *Sàn gỗ Sương Lĩnh.* Hai chiếc ghế ở hàng đầu, cạnh mép sàn: *Cô Tuệ. Bà.* Bàn ăn xếp hình chữ U quanh sân. Cầu thang nhà văn hóa ở góc trên bên trái.
 
 Từ chân cầu thang đến cây phượng thứ ba, một đường nét đứt.
 
@@ -282,7 +282,7 @@ Anh nhìn. Cạnh cây phượng thứ ba, một chấm tròn nhỏ. Bút chì. 
 
 *P. Chỗ vỏ cây mòn.*
 
-Bốn năm. Lớp bảy đến lớp mười. Mỗi tối anh đứng dưới cây phượng thứ ba chờ cô từ Hải Âu đi xuống. Tay đặt lên thân cây. Một chỗ. Vỏ cây mòn.
+Bốn năm. Lớp bảy đến lớp mười. Mỗi tối anh đứng dưới cây phượng thứ ba nhìn cô đi khuất lên dốc rồi mới về. Tay đặt lên thân cây. Một chỗ. Vỏ cây mòn.
 
 Bố anh biết.
 
@@ -406,7 +406,7 @@ Lăng nhìn bàn tay anh.
 
 "Tám ô nhịp." Anh nói. "Vừa."
 
-Lăng đặt tay trái lên vai anh. Tay phải vào tay anh. Khung tay Standard. Hai mươi ba năm giải nghệ. Khung tay không đổi.
+Lăng đặt tay trái lên vai anh. Tay phải vào tay anh. Khung tay Standard. Hai mươi sáu năm giải nghệ. Khung tay không đổi.
 
 Cô Mão bật cái đài nhỏ trên sạp. Đài phát thanh thành phố. Một bản Waltz cũ. Ngẫu nhiên.
 
@@ -420,13 +420,13 @@ Anh dẫn. Mẹ theo.
 
 Lần đầu tiên trong đời anh dẫn mẹ.
 
-Năm anh sáu tuổi, mẹ dẫn anh. Phòng tập Liên đoàn. Gương có vết ố hình con cá. Mẹ bảo: *Waltz không có hông. Waltz đi trên mặt nước.* Anh bước sai. Mẹ không nói gì. Mẹ chỉ dừng lại. Đặt anh về chỗ cũ. Bắt đầu lại.
+Năm anh sáu tuổi, mẹ dẫn anh. Phòng tập tầng một nhà mình. Mỗi tối mẹ tập Waltz một mình trước gương. Có tối anh tự bước vào. Mẹ bảo: *Waltz không có hông. Waltz đi trên mặt nước.* Anh bước sai. Mẹ không nói gì. Mẹ chỉ dừng lại. Đặt anh về chỗ cũ. Bắt đầu lại.
 
 Bây giờ anh dẫn.
 
 Một vòng. Hẹp. Vai Lăng sượt qua một cuộn vải hoa. Cuộn vải lắc lư. Không đổ.
 
-Ô nhịp thứ năm. Lăng nghiêng đầu. Đúng góc. Hai mươi ba năm không đổi.
+Ô nhịp thứ năm. Lăng nghiêng đầu. Đúng góc. Hai mươi sáu năm không đổi.
 
 Ô nhịp thứ bảy. Anh thấy mắt mẹ.
 

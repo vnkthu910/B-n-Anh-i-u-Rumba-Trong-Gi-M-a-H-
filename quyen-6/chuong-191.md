@@ -104,7 +104,7 @@ Phòng khách im lặng.
 
 "Vâng. Ba cây."
 
-Anh ngồi đối diện cô. Không nói gì. Nhưng cô thấy anh nhìn ra ngoài cửa sổ. Về phía phố Lưới Biển. Cây phượng thứ ba. Bốn năm, từ lớp bảy, anh đứng dưới cây phượng ấy mỗi tối. Chờ cô.
+Anh ngồi đối diện cô. Không nói gì. Nhưng cô thấy anh nhìn ra ngoài cửa sổ. Về phía phố Lưới Biển. Cây phượng thứ ba. Bốn năm, từ lớp bảy, anh đứng dưới cây phượng ấy mỗi tối. Nhìn cô đi khuất lên dốc rồi mới về.
 
 "Cô Tuệ ngồi hàng đầu." Cô nói. "Không phải leo cầu thang. Cô Tuệ bảo con: *Lúc ấy cô không leo được ba tầng thì con mang băng xuống. Cô ngồi hàng đầu ở dưới.*"
 
@@ -318,7 +318,7 @@ Gốc cây có một chỗ vỏ mòn nhẵn. Ngang hông người lớn. Như c�
 
 "Anh tựa vào đây."
 
-"Tay." Anh nói. "Anh đặt tay vào đây. Đợi em tập xong ở Hải Âu. Đi về."
+"Tay." Anh nói. "Anh đặt tay vào đây. Đợi em đi khuất lên dốc. Rồi mới về."
 
 Cô đặt tay trái lên chỗ vỏ mòn. Chiếc nhẫn chạm vào vỏ cây.
 
@@ -326,11 +326,13 @@ Cô đặt tay trái lên chỗ vỏ mòn. Chiếc nhẫn chạm vào vỏ cây.
 
 "Ừ."
 
-"Không phải đợi em tập xong." Cô nói. "Đợi em ra."
+"Không phải nhìn em đi." Cô nói. "Đợi em đến."
 
-Hai người đi tiếp. Cuối phố Lưới Biển. Nhà văn hóa phường. Tòa ba tầng. Tường vàng đã bạc. Mái tôn mới trên tầng ba, chỗ Hải Âu.
+Hai người đi tiếp. Phố Lưới Biển ngắn. Cây phượng thứ ba đứng ở đầu phố, ngay chỗ rẽ lên dốc. Từ đấy đến cuối phố là sân xi măng nhà văn hóa phường. Không có tường rào phía phố. Ba cây phượng đầu phố đứng dọc mép sân.
 
-Sân xi măng phía trước. Rộng. Ba cây phượng. Một cột cờ. Mấy chiếc ghế đá.
+Cuối sân, nhà văn hóa phường. Tòa ba tầng. Tường vàng đã bạc. Mái tôn mới trên tầng ba, chỗ Hải Âu.
+
+Sân xi măng rộng. Một cột cờ. Mấy chiếc ghế đá.
 
 Trên một chiếc ghế đá, cô Tuệ ngồi.
 
@@ -352,7 +354,7 @@ Cô đứng im ở cổng sân.
 
 Cô Tuệ nhìn cây gậy dựng bên cạnh.
 
-"Bác sĩ bảo đầu gối." Cô Tuệ nói. "Bảy mươi sáu tuổi. Bốn mươi năm đứng giữa phòng tập. Đầu gối bảo đủ rồi."
+"Bác sĩ bảo đầu gối." Cô Tuệ nói. "Bảy mươi sáu tuổi. Năm mươi năm đứng giữa phòng tập. Đầu gối bảo đủ rồi."
 
 "Cô…"
 

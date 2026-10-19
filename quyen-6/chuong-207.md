@@ -6,9 +6,9 @@ Tuyết.
 
 Ôn Chi Hạ nhìn qua ô cửa sổ máy bay. Bên dưới, thành phố trắng. Mái nhà trắng. Đường phố trắng. Sông Aldwell uốn qua giữa như một dải lụa xám.
 
-Ba năm trước, cô nhìn thành phố này qua đúng ô cửa sổ ấy. Không. Không đúng ô ấy. Nhưng cùng một cảnh. Năm ấy cô hai mươi ba tuổi. Ngồi cạnh anh. Không dám đặt tay lên tay vịn chung.
+Ba năm trước, cô nhìn thành phố này qua đúng ô cửa sổ ấy. Không. Không đúng ô ấy. Nhưng cùng một cảnh. Năm ấy cô hai mươi ba tuổi. Ngồi cạnh anh. Tay anh trên tay vịn giữa hai ghế khẽ dịch sang. Chạm vào tay cô. Rồi nằm yên đó đến khi máy bay dừng hẳn. Không ai nói gì.
 
-Bây giờ tay trái cô đặt trên tay vịn. Tay trái anh đặt lên tay cô. Hai sợi ruy băng chạm nhau. Đỏ. Xanh.
+Bây giờ tay trái cô đặt trên tay vịn trước. Tay trái anh đặt lên tay cô. Hai sợi ruy băng chạm nhau. Đỏ. Xanh.
 
 "Năm ngày." Anh nói.
 
@@ -32,7 +32,7 @@ Phòng 308.
 
 Cô đứng ở cửa phòng. Không vào ngay.
 
-Ba năm trước, cô ở phòng này. Bão tuyết. Không còn bờ sông. Không còn đường. Chỉ còn một tấm chăn trắng. Đêm ấy hai người ngồi ở hành lang tầng ba, trùm chung một chiếc chăn, nghe bão gào ngoài cửa sổ. Cách nhau một gang tay. Không chạm.
+Ba năm trước, cô ở phòng này. Bão tuyết. Không còn bờ sông. Không còn đường. Chỉ còn một tấm chăn trắng. Đêm ấy hai người ngồi ở hành lang tầng ba, trùm chung một chiếc chăn, nghe bão gào ngoài cửa sổ. Cô tựa đầu vào vai anh. Anh kéo cô vào lòng. Đến sáng.
 
 Anh đặt vali xuống.
 
@@ -44,7 +44,7 @@ Cô nhìn anh.
 
 "Em ngủ được."
 
-"Đêm thứ hai em ngủ ở hành lang." Anh nói. "Gối đầu lên vai anh. Ba tiếng. Anh không dám cử động."
+"Đêm bão em ngủ ở hành lang." Anh nói. "Trên ngực anh. Anh không dám cử động. Bốn giờ sáng anh bế em vào phòng."
 
 Cô không cãi.
 
@@ -200,7 +200,7 @@ Chiều. Học viện Khiêu vũ Hoàng gia Estherwyn.
 
 Tòa nhà đá trắng ba tầng trên ngọn đồi nhìn xuống sông Aldwell. Cổng sắt uốn hình đôi cánh chim xòe ra trên một nốt nhạc.
 
-Ba năm trước, cô đứng ở cổng này. Không dám vào. Năm mười bảy tuổi, cái cổng này là nơi cô đẩy anh đến.
+Ba năm trước, thầy Lucien đứng đợi ở cổng này. Tuyết phủ trắng vai áo dạ. Cô đi vào sau lưng anh. Qua hành lang treo ảnh một trăm năm. Năm mười bảy tuổi, cái cổng này là nơi cô đẩy anh đến.
 
 Bây giờ cô đi qua cổng. Tay trong tay anh.
 

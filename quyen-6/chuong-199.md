@@ -12,9 +12,9 @@ Cô đếm khúc cua.
 
 Hai mươi ba.
 
-Năm mười tám tuổi, cô ngồi xe khách lên con đèo này lần đầu. Lưng đeo nẹp. Không ngồi thẳng được. Mẹ ngồi bên cạnh, đặt tay sau lưng cô suốt ba mươi tám khúc cua. Bố lái xe tải đi trước, chở đồ đạc. Cả nhà ở Nguyệt Loan nhét vào một thùng xe.
+Năm mười bảy tuổi, một tuần sau Thạch Kiều, cô lên con đèo này lần đầu. Trong cabin xe tải của bố. Ngồi sát cửa sổ. Lưng đeo nẹp. Không ngồi thẳng được. Em Thu ngủ. Mẹ ngồi bên cạnh, đặt tay sau lưng cô suốt ba mươi tám khúc cua. Cả nhà ở Nguyệt Loan nhét vào một thùng xe.
 
-Tám năm.
+Chín năm.
 
 Bây giờ cô ngồi thẳng. Không cần tay ai sau lưng.
 
@@ -366,7 +366,7 @@ Bố không nắm tay cô. Bố đưa khuỷu tay ra. Như người ta đưa khu
 
 Cô khoác tay vào khuỷu tay bố.
 
-Mẹ không khoác tay. Mẹ chỉ đứng sát vai cô. Như mười tám tuổi. Như ba mươi tám khúc cua.
+Mẹ không khoác tay. Mẹ chỉ đứng sát vai cô. Như năm mười bảy tuổi. Như ba mươi tám khúc cua.
 
 "Đi bằng mày." Mẹ nói. "Đừng đi bằng tao."
 
@@ -450,7 +450,7 @@ Bố đứng ở cổng sắt. Quay lưng về phía cô. Hai tay đút túi áo
 
 Bố đứng rất lâu.
 
-"Mười tám tuổi." Mẹ nói. Không nhìn cô. "Bố mày lái xe tải chở cả nhà lên con đèo này. Mày nằm sau thùng xe. Đeo nẹp. Bố mày dừng xe ở khúc cua thứ mười chín. Xuống xe. Đứng ở mép vực. Quay lưng như thế. Tao không hỏi."
+"Năm mày mười bảy tuổi." Mẹ nói. Không nhìn cô. "Bố mày lái xe tải chở cả nhà lên con đèo này. Mày ngồi trong cabin. Đeo nẹp. Mày vừa kể hết chuyện cái lưng cho tao. Bố mày dừng xe ở khúc cua thứ mười chín. Xuống xe. Đứng ở mép vực. Quay lưng như thế. Tao không hỏi."
 
 Cô nhìn bóng bố ở cổng sắt.
 

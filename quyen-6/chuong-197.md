@@ -74,13 +74,13 @@ Hạt thứ tư.
 
 Hạt thứ năm.
 
-"Váy của mày." Mẹ nói. "Năm mày sáu tuổi. Váy xanh lá. Bộ đầu tiên."
+"Váy của mày." Mẹ nói. "Năm mày sáu tuổi. Váy tập đầu tiên. Xanh ngọc. Như cái váy mày đứng ngắm ở sạp hồi ấy."
 
 Cô nhìn hạt đá. Trong suốt. Bằng hạt gạo.
 
 "Váy ấy mẹ may hay mẹ sửa?"
 
-"Sửa." Mẹ nói. "Của một đứa lớn hơn mày. Nó bỏ học. Tao cắt ngắn. Mày mặc thi lần đầu. Mày giẫm chân thằng bé ba lần."
+"Sửa." Mẹ nói. "Của một đứa lớn hơn mày. Nó bỏ học. Tao cắt ngắn. Mày mặc từ buổi tập thứ hai. Buổi đầu mày mặc áo phông cũ. Giẫm chân thằng bé ba lần."
 
 Cô bật cười.
 
@@ -130,7 +130,7 @@ Ngón áp út tay trái cũng trống.
 
 Cô nhìn ngón tay ấy.
 
-Tám năm. Mẹ bán nhẫn cưới ở sạp vàng thứ hai chợ Vọng Hải. Trả tiền mổ lưng cho cô. Chiếc nhẫn mỏng nhất. Bố mua hai mươi sáu năm trước. Mặc cả bớt ba mươi nghìn.
+Chín năm. Mẹ bán nhẫn cưới ở sạp vàng thứ hai chợ Vọng Hải. Trả tiền mổ lưng cho cô. Chiếc nhẫn mỏng nhất. Bố mua hai mươi sáu năm trước. Mặc cả bớt ba mươi nghìn.
 
 Chiếc nhẫn trên tay cô bây giờ mỏng như thế. Anh mua ở cùng sạp. Mặc cả bớt ba mươi nghìn. Như bố.
 

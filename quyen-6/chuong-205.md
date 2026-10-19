@@ -106,7 +106,7 @@ Cô nhìn anh.
 
 Anh nhìn cô.
 
-Luật số năm. *Không làm gì một mình. Nói với nhau trước khi quyết.*
+Luật số năm. *Nói trước. Kể cả chuyện chắc chắn bị cấm.* Và lời hứa đêm mất điện: *Không làm gì một mình.*
 
 Cô không cần nói. Anh không cần nói. Ba tháng nay, ở phòng tập số ba, ở tàu đêm, ở Kha Lâm, ở Sương Lĩnh, hai người đã nói. Không phải về Hải Âu. Về sau này.
 

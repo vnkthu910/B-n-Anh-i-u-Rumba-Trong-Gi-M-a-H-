@@ -144,7 +144,7 @@ Cô không thở.
 
 "Mẹ biết."
 
-"Tao biết." Mẹ nói. "Tao biết mày sẽ nói câu ấy với thằng bé. Tao biết vì sao. Lưng mày. Nợ của bố mày. Thư mời của nó. Tao biết hết."
+"Tao biết." Mẹ nói. "Tao biết mày sẽ nói câu ấy với thằng bé. Tao không biết vì sao. Nợ của bố mày thì tao biết. Lưng mày thì tao không biết. Mày giấu giỏi. Tao tưởng hai đứa cãi nhau."
 
 Mẹ đặt hai bàn tay lên đầu gối. Bàn tay thô. Ngón áp út trái trống.
 
@@ -190,7 +190,9 @@ Cô cúi đầu.
 
 Mẹ không khóc lúc kể. Giọng đều. Như đọc số đo.
 
-"Tao khóc không phải vì bà ấy." Mẹ nói. "Vì bà ấy nói đúng một nửa. Nửa kia tao biết từ đêm trước. Tao nằm bên kia vách nghe mày tập ba mươi lần. Tao không vào."
+"Tao khóc không phải vì bà ấy." Mẹ nói. "Bà ấy kể chuyện thư mời. Tao mới hiểu câu mày tập ba mươi lần là để làm gì. Bà ấy nói đúng một nửa. Nửa kia tao biết từ đêm trước. Tao nằm bên kia vách nghe mày tập. Tao không vào."
+
+"Một tuần sau." Mẹ nói. "Trên xe tải lên Sương Lĩnh. Mày kể chuyện cái lưng. Tao nghe hết. Tao không nói với mày là tao đã nghe câu ấy qua vách. Chín năm tao không nói."
 
 Cô ngẩng lên.
 
@@ -292,7 +294,7 @@ Bố đứng ở ngưỡng cửa rất lâu. Áo sơ mi trắng cài đến khuy
 
 Rồi bố quay đi. Đi ra sân. Đứng dưới giàn hoa giấy. Quay lưng.
 
-Như ở cổng nhà thiếu nhi Sương Lĩnh. Như ở khúc cua thứ mười chín năm cô mười tám tuổi.
+Như ở cổng nhà thiếu nhi Sương Lĩnh. Như ở khúc cua thứ mười chín năm cô mười bảy tuổi.
 
 Mẹ nhìn theo bố.
 
@@ -368,7 +370,7 @@ Anh không cười. Anh không đưa tay ra. Anh đứng.
 
 Chờ.
 
-Như mười bốn năm trước. Như mỗi tối thứ Ba, thứ Năm, thứ Bảy ở Hải Âu. Cô từ trên tầng ba đi xuống. Anh đứng dưới cây phượng thứ ba. Tay đặt lên thân cây. Một chỗ.
+Như mười bốn năm trước. Mỗi tối, anh đứng dưới cây phượng thứ ba nhìn cô đi lên dốc. Tay đặt lên thân cây. Một chỗ. Bốn năm cô không quay lại nhìn. Năm mười sáu tuổi cô mới biết.
 
 Bây giờ tay anh không đặt lên thân cây.
 

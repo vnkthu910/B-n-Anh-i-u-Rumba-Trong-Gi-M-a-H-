@@ -24,11 +24,11 @@ Trên bàn gỗ cạnh ô cửa sổ tròn, chiếc máy cát-xét của Hải �
 
 Luật mười tám viết năm ngoái. Chữ cô.
 
-*Mười tám. Ngày nào cũng gặp thì vẫn nói "chào".*
+*18. Ngày nào cũng gặp thì vẫn nói "chào".*
 
 Luật mười chín viết tháng trước. Chữ anh.
 
-*Mười chín. Đèn ai về sau thì bật. Cửa ai đến trước thì mở.*
+*19. Đèn ai về sau thì bật. Cửa ai đến trước thì mở.*
 
 Anh mặc áo. Cầm chiếc chìa khóa đồng trên bậu cửa sổ tròn. Sợi dây vải đỏ bạc màu.
 

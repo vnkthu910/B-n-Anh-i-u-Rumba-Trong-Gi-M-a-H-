@@ -448,7 +448,7 @@ Anh đứng ở cửa sổ tròn. Đèn pin trong tay.
 
 Chờ.
 
-Từ năm mười hai tuổi, anh đứng ở cây phượng thứ ba chờ cô từ Hải Âu đi xuống. Bốn năm.
+Từ năm mười hai tuổi, anh đứng ở cây phượng thứ ba nhìn cô đi khuất lên dốc. Bốn năm. Cô không quay lại lần nào.
 
 Năm năm xa nhau, anh gửi ba trăm mười ba tin nhắn vào một số máy không ai đọc.
 
@@ -482,7 +482,7 @@ Lăng nhìn anh. Nhìn đèn pin trong tay anh.
 
 "Một lần nghĩa là gì ạ?"
 
-"Mẹ không biết." Lăng nói. "Hai mươi bảy năm mẹ không hỏi."
+"Mẹ không biết." Lăng nói. "Ba mươi năm mẹ không hỏi."
 
 "Bây giờ mẹ hỏi không ạ?"
 

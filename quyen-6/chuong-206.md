@@ -344,7 +344,7 @@ Tim anh không phải sáu mươi hai.
 
 Cô cười.
 
-Rồi cô kéo anh xuống. Giường gỗ ông nội anh đóng. Kêu một tiếng. Như bậc thứ mười.
+Rồi cô kéo anh xuống. Chiếc giường đơn sát tường. Kêu một tiếng. Như bậc thứ mười.
 
 Không vội.
 
@@ -440,7 +440,7 @@ Bên dưới, trang còn trống.
 
 Cô cầm bút. Viết. Anh nhìn qua vai cô.
 
-*Mười bảy.*
+*17.*
 
 Rồi cô dừng. Đưa bút cho anh.
 

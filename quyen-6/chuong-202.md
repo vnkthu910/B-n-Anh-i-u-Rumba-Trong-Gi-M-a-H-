@@ -16,7 +16,7 @@ Mười bốn năm, mỗi lần đứng đây, tay anh tự tìm đến chỗ �
 
 Hôm nay anh để tay buông.
 
-Anh không biết vì sao. Chỉ biết hôm nay không phải chờ như những lần kia. Những lần kia anh chờ một người từ trên tầng ba đi xuống rồi đi bên cạnh anh về đến đầu dốc Chợ Cũ. Rồi rẽ.
+Anh không biết vì sao. Chỉ biết hôm nay không phải chờ như những lần kia. Những lần kia anh đi cạnh một người từ Hải Âu về đến đây. Rồi đứng nhìn người ấy đi lên dốc. Đến khi khuất.
 
 Hôm nay không rẽ.
 
@@ -100,7 +100,7 @@ Anh mở tờ giấy. Ở đó. Dưới cây phượng thứ ba. Trước khi H�
 
 Bên dưới. Mực khác. Chữ như gà bới. Dài hơn mọi kỳ.
 
-*Năm nó mười tám. Đèo Sương Lĩnh. Khúc cua mười chín. Tao dừng xe. Tao định quay về Nguyệt Loan. Bán xe. Làm gì cũng được. Không lên núi. Tao đứng ở mép vực. Nó nằm sau thùng xe. Đeo nẹp. Nó gõ ba tiếng lên vách thùng. Tao không biết ba tiếng là gì. Tao lên xe. Lái tiếp. Tám năm tao không hỏi. Tháng trước Khúc Nam bảo ba tiếng là "có tớ đây". Từ hôm nay mày nghe nó gõ.*
+*Năm nó mười bảy. Đèo Sương Lĩnh. Khúc cua mười chín. Tao dừng xe. Tao định quay về Nguyệt Loan. Bán xe. Làm gì cũng được. Không lên núi. Tao đứng ở mép vực. Nó ngồi trong cabin. Đeo nẹp. Nó gõ ba tiếng lên kính cửa. Tao không biết ba tiếng là gì. Tao lên xe. Lái tiếp. Chín năm tao không hỏi. Tháng trước Khúc Nam bảo ba tiếng là "có tớ đây". Từ hôm nay mày nghe nó gõ.*
 
 Anh đọc hai lần.
 
@@ -120,7 +120,7 @@ Hạt đá sáng lên.
 
 "Ừ."
 
-"Em đau quá." Cô nói. "Em nằm sau thùng xe. Em gõ vì đau. Em không biết bố đứng ở mép vực."
+"Em đau quá." Cô nói. "Em ngồi trong cabin. Em gõ vì đau. Em không biết bố đứng ở mép vực."
 
 Anh không nói gì.
 
@@ -264,17 +264,17 @@ Em Thu mang từ nhà họ Tạ ra. Đặt lên chiếc bàn gỗ nhỏ kê dư�
 
 Mười lăm luật. Chữ hai người. Hai năm.
 
-*Một. Thuê theo sức người nghèo hơn. Chia đôi.*
+*1. Thuê theo sức người nghèo hơn. Chia đôi.*
 
-*Năm. Không làm gì một mình. Nói với nhau trước khi quyết.*
+*5. Nói trước. Kể cả chuyện chắc chắn bị cấm.*
 
-*Chín. Được giấu một chuyện. Đến một ngày định trước.*
+*9. Có một chuyện Phong chưa nói. Bố cho phép giấu. Hạ được biết là có. Không được hỏi là gì. Đến Marivonne.*
 
-*Mười hai. Người không có tờ giấy thì cũng có con số. Hỏi nhau. Mỗi tối.*
+*12. Người không có tờ giấy thì cũng có con số. Hỏi nhau. Mỗi tối.*
 
-*Mười bốn. Hỏi gì cũng được. Phải.*
+*14. Hỏi gì cũng được. Phải.*
 
-*Mười lăm. Nhà bên cạnh có người. Bên dưới có người. Gõ thì có người nghe.*
+*15. Nhà bên cạnh có người. Bên dưới có người. Gõ thì có người nghe.*
 
 Trang mới.
 
@@ -286,7 +286,7 @@ Có một trang trắng.
 
 Anh cầm bút. Viết. Không nhìn ai.
 
-*Mười sáu.*
+*16.*
 
 Rồi anh đưa bút cho cô.
 
