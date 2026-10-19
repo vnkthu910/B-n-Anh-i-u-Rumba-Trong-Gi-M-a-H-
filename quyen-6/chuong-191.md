@@ -22,7 +22,7 @@ Bố cô nhìn cuốn lịch. Bố anh nhìn cuốn lịch. Lăng nhìn mẹ cô
 
 "Ba tháng." Mẹ cô nói. "Tao may ba tháng. Sớm nhất là tháng Mười Một."
 
-"Mùa giải." Anh nói. "Giải Kim Diệp bắt đầu tháng Chín. Chặng cuối tháng Mười. Tháng Mười Một nghỉ. Giải quốc gia tháng Tám năm sau."
+"Mùa giải." Anh nói. "Cúp Kim Diệp. Chặng một giữa tháng Mười. Chặng hai giữa tháng Mười Một. Chặng ba giữa tháng Mười Hai, ở Aldmere. Chung kết cuối tháng Hai."
 
 "Tháng Mười Một." Lăng nói.
 
