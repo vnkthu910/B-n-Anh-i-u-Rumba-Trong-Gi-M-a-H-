@@ -440,11 +440,15 @@ Bà nội ngồi trên ghế mây. Nhìn hai người.
 
 "Bà biết ạ?"
 
-"Năm hai đứa mười lăm tuổi." Bà nội nói. "Tập trên phòng áp mái. Mỗi tối. Bà ngồi dưới này nghe tiếng chân. Bậc thứ mười, bậc thứ mười một không kêu vì hai đứa không đi cầu thang. Hai đứa nhảy trên sàn gỗ. Sàn gỗ kêu theo nhịp."
+"Năm hai đứa mười lăm tuổi." Bà nội nói. "Tập ở Hải Âu. Mỗi chiều. Bà đi chợ về qua nhà văn hóa phường. Đứng dưới sân. Nghe nhạc trên tầng ba. Cô giáo bật đi bật lại một cuộn băng."
 
 Cô đứng im.
 
-"Bà nghe ba năm." Bà nội nói. "Đến chỗ này thì dừng. Đêm nào cũng dừng ở chỗ này. Rồi hai đứa đi xuống. Không nhảy tiếp."
+"Đêm Trung thu năm ấy hai đứa nhảy trên sân thượng nhà văn hóa." Bà nội nói. "Bà đứng ở ô cửa sổ tròn trên phòng áp mái. Nhìn sang. Đến chỗ này thì dừng. Rồi hai đứa đứng nhìn nhau. Không nhảy tiếp."
+
+"Vâng."
+
+"Bà nghe ở dưới sân hai năm nữa." Bà nội nói. "Đến chỗ này thì nhạc dừng. Chiều nào cũng thế."
 
 "Vâng."
 

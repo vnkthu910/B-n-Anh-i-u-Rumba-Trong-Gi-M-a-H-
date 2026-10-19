@@ -88,7 +88,7 @@ Không phải đỏ tươi. Không phải đỏ rượu vang. Đỏ như sợi r
 
 Cô đi đến trước mặt anh. Quay lưng lại.
 
-Đường xẻ dài từ gáy xuống giữa lưng. Và một dải lụa mỏng vắt chéo ngang qua thắt lưng. Đúng chỗ đốt sống thứ tư. Đúng chỗ vết sẹo bốn phân.
+Đường xẻ dài từ gáy xuống giữa lưng. Và một dải lụa mỏng vắt chéo ngang qua thắt lưng. Đúng chỗ đốt sống thứ tư. Đúng chỗ vết sẹo mười một phân.
 
 Anh đứng sững.
 
@@ -216,7 +216,7 @@ Nhịp bốn.
 
 Cô buông tay anh ra. Xoay người. Quay lưng về phía anh.
 
-Lưng cô cách ngực anh một gang tay. Dải lụa vắt ngang thắt lưng. Đường xẻ dài. Vết sẹo bốn phân ở dưới dải lụa, anh không nhìn thấy, nhưng anh biết chính xác nó ở đâu.
+Lưng cô cách ngực anh một gang tay. Dải lụa vắt ngang thắt lưng. Đường xẻ dài. Vết sẹo mười một phân ở dưới dải lụa, anh không nhìn thấy, nhưng anh biết chính xác nó ở đâu.
 
 Nhịp năm.
 

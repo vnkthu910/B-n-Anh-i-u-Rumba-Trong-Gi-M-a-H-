@@ -154,7 +154,7 @@ Anh im một lúc.
 
 "Ừ."
 
-Cô lùi lại. Quay sang nhìn tấm gương. Trong gương chỉ thấy lưng hai người. Hai cái lưng. Một vết sẹo bốn phân dưới lớp áo phông của cô, anh không cần nhìn cũng biết ở đâu.
+Cô lùi lại. Quay sang nhìn tấm gương. Trong gương chỉ thấy lưng hai người. Hai cái lưng. Một vết sẹo mười một phân dưới lớp áo phông của cô, anh không cần nhìn cũng biết ở đâu.
 
 "Bài này." Cô nói. "Kết bằng lưng."
 
@@ -398,7 +398,7 @@ Cô dẫn như cô dẫn tám nhịp cuối. Không biên đạo. Mỗi lần m�
 
 Mưa vẫn gõ lên cửa kính.
 
-Rất lâu sau, cô nằm úp. Anh ngồi dậy. Đặt hai ngón cái lên hai bên vết sẹo bốn phân. Ngang L4.
+Rất lâu sau, cô nằm úp. Anh ngồi dậy. Đặt hai ngón cái lên hai bên vết sẹo mười một phân. Ngang L4.
 
 Xoay tròn.
 

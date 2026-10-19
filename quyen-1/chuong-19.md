@@ -70,7 +70,7 @@ Người mời là mẹ cậu. Năm ấy, Lăng Vân Thư vừa được bầu l
 
 Biên đạo ấy tên là Lucien Ardois.
 
-Kỳ Phong đã nghe tên ông từ bé. Mẹ cậu có cả một ngăn tủ băng hình những bài nhảy do ông biên đạo. Ông từng là vận động viên Latin của Estherwyn, hai lần vô địch thế giới, giải nghệ năm ba mươi tuổi, rồi trở thành một trong những biên đạo được săn đón nhất thế giới. Ông đang giảng dạy tại Học viện Khiêu vũ Hoàng gia Estherwyn, học viện danh giá nhất châu Âu, nơi mỗi năm chỉ nhận mười hai học viên từ khắp thế giới.
+Kỳ Phong đã nghe tên ông từ bé. Mẹ cậu có cả một ngăn tủ băng hình những bài nhảy do ông biên đạo. Ông từng là vận động viên Latin của Estherwyn, hai lần vô địch thế giới, giải nghệ năm ba mươi tuổi, rồi trở thành một trong những biên đạo được săn đón nhất thế giới. Ông đang giảng dạy tại Học viện Khiêu vũ Hoàng gia Estherwyn, học viện danh giá nhất lục địa phía Tây, nơi mỗi năm chỉ nhận mười hai học viên từ khắp thế giới.
 
 Ngày đầu tiên của khóa tập huấn, Lucien Ardois bước vào phòng tập đội trẻ Nguyệt Loan.
 

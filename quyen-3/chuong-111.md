@@ -206,7 +206,7 @@ Uốn lưng.
 
 Năm mười sáu tuổi, cô uốn lưng ở đoạn này. Ngả người ra sau đến khi tóc chạm sàn. Một năm sau, đốt sống thứ tư gãy vì mỏi.
 
-Bây giờ anh đỡ lưng cô. Một tay đặt đúng chỗ vết sẹo bốn phân. Cô ngả người ra sau. Không đến tóc chạm sàn. Chỉ đến khi cô nhìn thấy trần nhà, chiếc quạt trần cũ quay chậm, và nắng chiều trên mặt anh.
+Bây giờ anh đỡ lưng cô. Một tay đặt đúng chỗ vết sẹo mười một phân. Cô ngả người ra sau. Không đến tóc chạm sàn. Chỉ đến khi cô nhìn thấy trần nhà, chiếc quạt trần cũ quay chậm, và nắng chiều trên mặt anh.
 
 Đủ rồi.
 

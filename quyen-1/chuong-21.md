@@ -26,7 +26,7 @@ Tờ thứ nhất là một lá thư. Tiếng Estherwyn. Cậu học tiếng Est
 
 *Thay mặt Hội đồng Tuyển sinh Học viện Khiêu vũ Hoàng gia Estherwyn, chúng tôi trân trọng thông báo anh đã được đặc cách mời tham gia Chương trình Đào tạo Vũ công Tinh hoa, niên khóa bắt đầu từ tháng Chín năm nay.*
 
-*Chương trình kéo dài năm năm. Học viên được cấp học bổng toàn phần, bao gồm học phí, ăn ở, trang phục, chi phí thi đấu quốc tế và trợ cấp sinh hoạt hằng tháng. Học viên sẽ được ghép cặp với vũ công phù hợp do Học viện tuyển chọn và thi đấu dưới sự bảo trợ của Học viện tại các giải đấu chuyên nghiệp châu Âu và thế giới.*
+*Chương trình kéo dài năm năm. Học viên được cấp học bổng toàn phần, bao gồm học phí, ăn ở, trang phục, chi phí thi đấu quốc tế và trợ cấp sinh hoạt hằng tháng. Học viên sẽ được ghép cặp với vũ công phù hợp do Học viện tuyển chọn và thi đấu dưới sự bảo trợ của Học viện tại các giải đấu chuyên nghiệp khu vực phía Tây và thế giới.*
 
 *Chương trình mỗi năm chỉ tuyển mười hai học viên trên toàn thế giới. Anh là vận động viên Tinh Lam thứ hai trong lịch sử Học viện nhận được lời mời đặc cách này.*
 

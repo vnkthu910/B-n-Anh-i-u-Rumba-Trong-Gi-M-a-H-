@@ -246,7 +246,7 @@ Chi Hạ không nói gì.
 
 Chi Hạ ngẩng lên.
 
-"Tôi theo dõi thằng bé ở Estherwyn." Thầy Nghiêm nói. "Đứng thứ hai Cúp Mùa đông Aldmere. Vô địch hai giải mở rộng châu Âu trẻ. Samba, Cha-cha-cha, Jive, Paso Doble, điểm cao. Rumba thì..."
+"Tôi theo dõi thằng bé ở Estherwyn." Thầy Nghiêm nói. "Đứng thứ hai Cúp Mùa đông Aldmere. Vô địch hai giải mở rộng trẻ khu vực phía Tây. Samba, Cha-cha-cha, Jive, Paso Doble, điểm cao. Rumba thì..."
 
 Ông ngừng lại.
 

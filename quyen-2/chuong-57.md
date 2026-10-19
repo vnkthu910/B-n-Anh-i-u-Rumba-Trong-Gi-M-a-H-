@@ -334,7 +334,7 @@ Trong tấm ảnh ấy, sau này cô mới thấy, cô không nhìn vào ống k
 
 Bảy giờ tối, đội tuyển ăn mừng ở nhà hàng tầng hai khách sạn Thiên Hà.
 
-Tô Linh đeo tấm huy chương đồng nhóm thiếu niên, đi từ bàn này sang bàn khác, cho mọi người cắn thử như cắn huy chương vàng Olympic. Thầy Nghiêm uống một chén rượu. Chỉ một chén. Rồi ngồi im, nhìn ra cửa sổ, khóe môi giật giật như cô Tố Nga.
+Tô Linh đeo tấm huy chương đồng nhóm thiếu niên, đi từ bàn này sang bàn khác, cho mọi người cắn thử như cắn huy chương vàng thế vận hội. Thầy Nghiêm uống một chén rượu. Chỉ một chén. Rồi ngồi im, nhìn ra cửa sổ, khóe môi giật giật như cô Tố Nga.
 
 Thầy Bạch Tùng ngồi cạnh thầy Nghiêm. Hai ông già không nói gì nhiều. Thỉnh thoảng cụng chén, gật đầu, như hai người đã nói hết mọi chuyện từ hai mươi năm trước.
 

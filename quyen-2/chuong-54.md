@@ -46,7 +46,7 @@ Bảy giờ sáng, anh gọi cho Diêu Mạn.
 
 Cô ta nghe máy ngay hồi chuông đầu tiên. Giọng khàn, như người đã thức trắng.
 
-"Tôi biết." Diêu Mạn nói, trước khi anh kịp mở miệng. "Tôi thấy lúc ba giờ sáng. Văn phòng khu vực châu Á của Sel Aurane tự làm. Không qua Starcrest. Không qua tôi."
+"Tôi biết." Diêu Mạn nói, trước khi anh kịp mở miệng. "Tôi thấy lúc ba giờ sáng. Văn phòng khu vực phía Đông của Sel Aurane tự làm. Không qua Starcrest. Không qua tôi."
 
 "Điều khoản..."
 

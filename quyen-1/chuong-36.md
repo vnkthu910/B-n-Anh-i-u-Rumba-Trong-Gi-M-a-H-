@@ -36,7 +36,7 @@ Kỳ Phong cười. Nụ cười thật.
 
 Isadora bật cười, giữa nước mắt, rồi lao tới, ôm lấy anh.
 
-"Cậu sẽ làm gì?" Cô hỏi, giọng nghẹn trên vai anh. "Học viện sẽ tìm bạn nhảy mới cho cậu. Thầy Lucien đã có danh sách rồi. Ba cô gái. Cả ba đều giỏi. Một người còn vô địch Rumba châu Âu."
+"Cậu sẽ làm gì?" Cô hỏi, giọng nghẹn trên vai anh. "Học viện sẽ tìm bạn nhảy mới cho cậu. Thầy Lucien đã có danh sách rồi. Ba cô gái. Cả ba đều giỏi. Một người còn vô địch Rumba khu vực phía Tây."
 
 "Tôi về." Kỳ Phong nói.
 

@@ -264,7 +264,7 @@ Bước thứ bảy. Bên phải.
 
 Bước thứ chín. Sau lưng.
 
-Cô cảm thấy anh ở sau lưng. Cách năm mươi phân. Chỗ L4. Chỗ vết sẹo. Chỗ hai cái vít. Chỗ đĩa đệm đang co lại.
+Cô cảm thấy anh ở sau lưng. Cách năm mươi phân. Chỗ L4. Chỗ đầu trên vết sẹo. Bên dưới, hai cái vít. Chỗ đĩa đệm đang co lại.
 
 Cô mở tay trái.
 

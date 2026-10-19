@@ -320,7 +320,7 @@ Anh đứng yên. Hai tay ở eo cô. Hơi thở dốc của anh ngay sau gáy c
 
 Cô không nói gì.
 
-"Anh đã thêm điều khoản. Họ đã ký. Văn phòng khu vực châu Á của họ vẫn làm. Họ bảo hai khung riêng, không phải cùng một khung hình."
+"Anh đã thêm điều khoản. Họ đã ký. Văn phòng khu vực phía Đông của họ vẫn làm. Họ bảo hai khung riêng, không phải cùng một khung hình."
 
 Cô vẫn không nói gì.
 

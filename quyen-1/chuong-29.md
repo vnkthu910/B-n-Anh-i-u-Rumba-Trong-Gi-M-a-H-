@@ -242,7 +242,7 @@ Rồi cô bấm vào.
 
 Một trang tin thể thao của Estherwyn. Tiếng Estherwyn. Cô đọc được một nửa. Năm lớp 6, Kỳ Phong bắt cô học cùng, bảo đó là ngôn ngữ của khiêu vũ thế giới.
 
-Tiêu đề bài báo: *Học viện Hoàng gia công bố cặp nhảy mới của mùa giải: Tân binh châu Á và "Nữ hoàng Jive" của Estherwyn.*
+Tiêu đề bài báo: *Học viện Hoàng gia công bố cặp nhảy mới của mùa giải: Tân binh phương Đông và "Nữ hoàng Jive" của Estherwyn.*
 
 Bên dưới là một tấm ảnh.
 
@@ -256,7 +256,7 @@ Cô biết nụ cười ấy. Đó là nụ cười cậu dành cho bác bảo v
 
 Không phải nụ cười cậu dành cho cô.
 
-Bài báo viết: *Isadora Wren, 19 tuổi, hai lần vô địch Jive trẻ châu Âu, sẽ ghép cặp với tân binh 17 tuổi người Tinh Lam, Tạ Kỳ Phong, người được thầy Lucien Ardois đặc cách tiến cử. Theo Isadora, cô đã thử nhảy với mười một ứng viên trước khi chọn Kỳ Phong. "Cậu ấy là người duy nhất không giẫm lên chân tôi," cô nói đùa.*
+Bài báo viết: *Isadora Wren, 19 tuổi, hai lần vô địch Jive trẻ khu vực phía Tây, sẽ ghép cặp với tân binh 17 tuổi người Tinh Lam, Tạ Kỳ Phong, người được thầy Lucien Ardois đặc cách tiến cử. Theo Isadora, cô đã thử nhảy với mười một ứng viên trước khi chọn Kỳ Phong. "Cậu ấy là người duy nhất không giẫm lên chân tôi," cô nói đùa.*
 
 Chi Hạ đọc đến câu ấy thì dừng lại.
 

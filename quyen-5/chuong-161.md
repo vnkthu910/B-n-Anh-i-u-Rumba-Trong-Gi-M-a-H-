@@ -458,7 +458,7 @@ Cô ngồi trong bồn. Anh ngồi sau lưng cô.
 
 "Để em nhìn thấy." Cô nói.
 
-Hai ngón cái anh đặt lên hai bên vết sẹo bốn phân. Xoay tròn.
+Hai ngón cái anh đặt lên hai bên vết sẹo mười một phân. Xoay tròn.
 
 "Anh."
 

@@ -176,11 +176,15 @@ Bác sĩ Lam chỉ bằng đầu bút.
 
 Anh thở ra.
 
-"Đây." Đầu bút di xuống một chút. "Đĩa đệm L4–L5. Ngay dưới đoạn cố định. Mỏng từ năm ngoái. Bây giờ phồng ra. Lệch phải. Chèn vào rễ thần kinh L5 bên phải. Đó là cái tê. Đó là cái chảy xuống chân."
+"Đây." Đầu bút di lên một chút. "Đĩa đệm L4–L5. Ngay trên đốt thứ năm đã cố định. Mỏng từ năm ngoái. Bây giờ phồng ra. Lệch phải. Chèn vào rễ thần kinh L5 bên phải. Đó là cái tê. Đó là cái chảy xuống chân."
 
 Cô nằm ngửa trên giường bệnh. Gối kê dưới đầu gối. Nhìn lên trần nhà. Không nhìn tấm phim.
 
-"Thoát vị đĩa đệm." Bác sĩ Lam nói. "Không phải gãy. Không phải vít lỏng. Đoạn cột sống ngay dưới hai cái vít phải gánh thay phần cột sống đã cố định. Tám năm. Mỗi lần xoay. Mỗi lần ngả. Nó gánh."
+"Thoát vị đĩa đệm." Bác sĩ Lam nói. "Không phải gãy. Không phải vít lỏng. Đốt thứ năm cố định bằng hai cái vít. Không cử động. Đốt thứ tư ngay trên nó phải cử động thay. Tám năm. Mỗi lần xoay. Mỗi lần ngả. Nó gánh."
+
+Anh đứng im. Ba năm trước, ở phòng khám đội tuyển, bác sĩ Văn đã nói câu ấy với cô. Cô kể lại với anh. *Nếu đốt thứ tư chịu tải thay đốt thứ năm, mỗi năm nó sẽ mỏi thêm một chút. Có người chịu được năm năm. Có người hai năm.*
+
+Ba năm.
 
 "Vòng Voltas thứ sáu." Cô nói. Vẫn nhìn trần nhà.
 

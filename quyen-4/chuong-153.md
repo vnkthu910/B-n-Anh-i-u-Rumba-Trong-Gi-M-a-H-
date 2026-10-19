@@ -362,7 +362,7 @@ Bồn sứ chân sư tử đầy nước nóng. Hơi nước mờ tấm gương 
 
 Cô ngồi trong bồn. Anh ngồi sau lưng cô. Nước ngập đến ngực.
 
-Anh đặt hai ngón cái lên hai bên vết sẹo bốn phân. Ngang L4. Ấn nhẹ. Xoay tròn. Mười lăm phút. Không đếm. Anh chưa bao giờ phải đếm.
+Anh đặt hai ngón cái lên hai bên vết sẹo mười một phân. Ngang L4. Ấn nhẹ. Xoay tròn. Mười lăm phút. Không đếm. Anh chưa bao giờ phải đếm.
 
 "Anh khóc ở bồn rửa." Cô nói.
 

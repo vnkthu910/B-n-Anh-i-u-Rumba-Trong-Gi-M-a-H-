@@ -18,7 +18,7 @@ Học viện Khiêu vũ Hoàng gia Estherwyn là một tòa nhà đá xám ba tr
 
 Gương thì mới. Gắn kín bốn bức tường, từ sàn đến trần. Không một vết nứt.
 
-Mười hai học viên năm nhất. Từ mười một quốc gia. Kỳ Phong là người duy nhất đến từ châu Á.
+Mười hai học viên năm nhất. Từ mười một quốc gia. Kỳ Phong là người duy nhất đến từ phương Đông.
 
 Ngày đầu tiên, Lucien Ardois đứng giữa phòng tập lớn nhất, chân trần, áo len cổ lọ màu xám tro, nhìn mười hai học viên.
 
@@ -64,7 +64,7 @@ Cô gái thứ mười là Isadora Wren.
 
 Cô xuất hiện ở cửa phòng tập vào một buổi chiều mưa cuối tháng Chín, tóc vàng óng buộc đuôi ngựa cao, áo khoác đỏ ướt sũng, tay cầm một cốc cà phê to tướng, miệng đang nhai bánh mì kẹp.
 
-"Cậu là cậu châu Á mà thầy Lucien cứ nói mãi à?" Cô hỏi, miệng đầy bánh mì, tiếng Estherwyn nhanh như súng liên thanh. "Tôi là Isadora. Mười chín tuổi. Hai lần vô địch Jive trẻ châu Âu. Bạn nhảy cũ của tôi vừa giải nghệ tháng trước, đi làm biên đạo, và tôi sắp cưới anh ấy, nên đừng có ý định gì nhé. Tôi đã thử nhảy với mười một người. Mười một người giẫm lên chân tôi. Cậu có định giẫm lên chân tôi không?"
+"Cậu là cậu phương Đông mà thầy Lucien cứ nói mãi à?" Cô hỏi, miệng đầy bánh mì, tiếng Estherwyn nhanh như súng liên thanh. "Tôi là Isadora. Mười chín tuổi. Hai lần vô địch Jive trẻ khu vực phía Tây. Bạn nhảy cũ của tôi vừa giải nghệ tháng trước, đi làm biên đạo, và tôi sắp cưới anh ấy, nên đừng có ý định gì nhé. Tôi đã thử nhảy với mười một người. Mười một người giẫm lên chân tôi. Cậu có định giẫm lên chân tôi không?"
 
 Kỳ Phong nhìn cô gái, không biết nên trả lời câu nào trước.
 
@@ -280,7 +280,7 @@ Tháng Sáu, Aldmere vào hè. Mưa ít đi. Nắng vàng nhạt rọi xuống n
 
 Ngày hai mươi ba tháng Sáu, Kỳ Phong không đi tập buổi chiều.
 
-Cậu đi bộ ba cây số đến một khu phố nhỏ ở phía đông thành phố, nơi có những cửa hàng của người nhập cư châu Á. Cậu đi dọc con phố, vào từng cửa hàng tạp hóa, nhìn từng kệ hàng.
+Cậu đi bộ ba cây số đến một khu phố nhỏ ở phía đông thành phố, nơi có những cửa hàng của người nhập cư phương Đông. Cậu đi dọc con phố, vào từng cửa hàng tạp hóa, nhìn từng kệ hàng.
 
 Đến cửa hàng thứ bảy, cậu tìm thấy.
 

@@ -26,11 +26,11 @@ Mẹ cô im lặng một lúc.
 
 Rồi mẹ cô bật cười. Khẽ. Như ở chợ phiên khi bà cụ bán hoa cong nửa ngón út.
 
-"Mười tám năm." Mẹ cô nói. "Cái áo sơ mi trắng ấy. Năm lớp ba. Nó đi học về, cổ áo dính mực đỏ. Không phải mực. Ruy băng phai màu. Thằng bé nhà chị cho nó một sợi ruy băng đỏ. Nó buộc vào cúc áo. Cả ngày. Ruy băng phai lên cổ áo."
+"Mười tám năm." Mẹ cô nói. "Cái áo sơ mi trắng ấy. Năm lớp ba. Mùa mưa. Nó đi học về, cổ áo sau gáy dính một vệt đỏ. Không phải mực. Ruy băng nhung phai màu. Hai đầu ruy băng thả xuống sau gáy, dài vừa chạm cổ áo. Mưa ướt. Màu ngấm vào vải."
 
 Cô đứng im.
 
-Cô không nhớ. Cô không nhớ đã buộc ruy băng vào cúc áo.
+Cô không nhớ. Cô nhớ sợi ruy băng. Không nhớ vệt đỏ trên cổ áo.
 
 "Tao giặt ba lần không hết vết." Mẹ cô nói. "Tao giữ cái áo."
 

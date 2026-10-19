@@ -100,7 +100,7 @@ Bước mười sáu. Về chỗ cũ. Bên trái cô.
 
 Cô quay sang anh. Lần đầu tiên trong mười sáu nhịp, cô di chuyển. Một bước. Xoay người đối diện anh.
 
-Tay trái cô đặt lên vai anh. Tay phải cô trong tay trái anh. Tay phải anh đặt sau lưng cô. Không phải chỗ bả vai như Rumba. Thấp hơn. Ngang L4. Lòng bàn tay áp lên vết sẹo bốn phân qua lớp áo tập.
+Tay trái cô đặt lên vai anh. Tay phải cô trong tay trái anh. Tay phải anh đặt sau lưng cô. Không phải chỗ bả vai như Rumba. Thấp hơn. Ngang L4. Lòng bàn tay áp lên vết sẹo mười một phân qua lớp áo tập.
 
 Cô Tố Nga đã dặn từ tuần trước: *Bài này tay cậu đặt thấp hơn. Lưng cô ấy cần chỗ dựa. Cậu là chỗ dựa.*
 

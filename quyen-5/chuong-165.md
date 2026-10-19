@@ -250,7 +250,7 @@ Chiều tập Paso. Nhịp bốn mươi mốt. Anh quỳ. Cô ngả. Bảy mươ
 
 Mười giờ tối. Phòng 412. Bồn sứ chân sư tử. Hoặc giường một mét sáu. Hoặc sàn phòng khách trước tấm gương khung gỗ sồi, nếu cả hai mệt đến mức không đi được vào phòng ngủ.
 
-Anh đặt bàn tay lên L4. Lòng bàn tay áp vào vết sẹo bốn phân.
+Anh đặt bàn tay lên L4. Lòng bàn tay áp vào vết sẹo mười một phân.
 
 "Bao nhiêu?"
 

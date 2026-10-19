@@ -96,7 +96,7 @@ Isadora vỗ nhẹ vai cậu, rồi quay lại với chồng.
 
 ---
 
-Ngày hai mươi ba tháng Sáu, Kỳ Phong đi bộ ba cây số đến khu phố người nhập cư châu Á ở phía đông Aldmere.
+Ngày hai mươi ba tháng Sáu, Kỳ Phong đi bộ ba cây số đến khu phố người nhập cư phương Đông ở phía đông Aldmere.
 
 Cửa hàng tạp hóa thứ bảy. Kệ hàng thứ ba. Chồng hộp thiếc tròn màu xanh lá.
 

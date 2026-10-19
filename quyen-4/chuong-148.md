@@ -228,7 +228,7 @@ Mười bốn ngày anh chỉ chạm vào lưng Tuyết Nghi qua lớp áo cảm
 
 Bây giờ không có vị trí nào.
 
-Tay anh tìm lưng cô. Không qua lớp áo nào. Đốt sống thứ tư. Vết sẹo bốn phân. Anh biết nó ở đâu trong bóng tối, như biết sợi ruy băng trên cổ tay mình.
+Tay anh tìm lưng cô. Không qua lớp áo nào. Đốt sống thứ tư. Vết sẹo mười một phân. Anh biết nó ở đâu trong bóng tối, như biết sợi ruy băng trên cổ tay mình.
 
 Tay cô tìm ngực anh. Chỗ tim. Không đếm. Ấn lòng bàn tay xuống.
 

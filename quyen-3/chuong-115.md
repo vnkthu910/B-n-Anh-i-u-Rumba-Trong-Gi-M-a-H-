@@ -220,7 +220,7 @@ Tay anh tìm lưng cô. Qua lớp vải bông mỏng. Đặt đúng chỗ đốt
 
 Cô cảm thấy bàn tay anh dừng lại ở đó. Ngập ngừng.
 
-Cô với tay ra sau. Tìm bàn tay anh. Kéo xuống. Kéo vạt váy ngủ lên. Đặt bàn tay anh lên da mình. Lên vết sẹo bốn phân.
+Cô với tay ra sau. Tìm bàn tay anh. Kéo xuống. Kéo vạt váy ngủ lên. Đặt bàn tay anh lên da mình. Lên vết sẹo mười một phân.
 
 "Ai muốn thấy thì thấy." Cô nói khẽ, sát môi anh.
 

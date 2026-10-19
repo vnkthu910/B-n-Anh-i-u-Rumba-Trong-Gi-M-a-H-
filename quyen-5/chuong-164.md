@@ -336,7 +336,7 @@ Em Thu đã về Sương Lĩnh bằng chuyến tàu chiều. Tấm thảm trư�
 
 Bồn sứ chân sư tử. Nước nóng. Cô ngồi trước. Anh ngồi sau.
 
-Hai ngón cái anh đặt lên hai bên vết sẹo bốn phân. Xoay tròn.
+Hai ngón cái anh đặt lên hai bên vết sẹo mười một phân. Xoay tròn.
 
 "Hôm nay em giữ anh lại." Anh nói.
 
@@ -384,7 +384,7 @@ Anh không nói gì.
 
 Phòng tắm im lặng. Chỉ có tiếng nước nhỏ giọt từ vòi.
 
-Anh nhìn vết sẹo bốn phân. Ngang L4. Hai cái vít bên dưới. Tám năm.
+Anh nhìn vết sẹo mười một phân. Từ ngang thắt lưng chạy xuống. Hai cái vít ở đốt thứ năm bên dưới. Đốt thứ tư ngay trên, gánh thay. Tám năm.
 
 Anh nghĩ đến Corwin Ashby đứng cạnh chiếc cân điện tử ở cửa phòng tập phía bắc. Nghĩ đến cô bạn cùng khóa ngất ở Aldmere. Nghĩ đến chín số một và hạng ba. Nghĩ đến Marivonne mùa hạ năm sau. Một điều anh chưa nói. Luật số chín.
 

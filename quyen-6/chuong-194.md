@@ -1,4 +1,4 @@
-# Chương 194: Hai nghìn rưỡi
+# Chương 194: Một nghìn tiền thừa
 
 Ngày tám tháng Chín. Năm giờ năm mươi chiều. Phòng 412.
 
@@ -76,19 +76,17 @@ Màu xanh như mặt biển Nguyệt Loan ngày lặng gió. Như chữ *T* trê
 
 "Ừ."
 
-Cô buộc sợi ruy băng lên cổ tay trái anh. Một vòng. Hai vòng. Thắt nút.
+Cô buộc sợi ruy băng lên cổ tay trái anh. Một vòng. Hai vòng. Ba vòng. Một chiếc nơ nhỏ.
 
-Không phải nút cũ. Nút mới. Cô không biết nút cũ anh thắt thế nào. Cô buộc theo cách mẹ cô dạy buộc chỉ gút. Ba vòng. Một nút chặt.
+Như cô buộc sợi ruy băng đỏ lên cổ tay anh năm hai mươi ba tuổi. Như mẹ cô buộc sợi ruy băng đỏ lên tóc cô năm tám tuổi, ở hành lang nhà văn hóa thành phố, khi sợi chun đen đứt.
 
-"Nút mới." Cô nói.
+"Ba vòng." Anh nói.
+
+"Một chiếc nơ nhỏ." Cô nói. "Như cũ."
 
 "Ừ."
 
-"Nút cũ em không biết."
-
-"Nút cũ là của em năm lớp ba." Anh nói. "Em không nhớ."
-
-"Em không nhớ." Cô nói. "Em nhớ nút này. Từ hôm nay."
+"Ruy băng mới. Nút cũ."
 
 Anh nhìn sợi ruy băng xanh trên cổ tay trái mình.
 
@@ -110,25 +108,33 @@ Anh nhìn cô.
 
 "Vì sao?"
 
-"Vì cô Mão bán theo giá năm ấy." Cô nói. "Năm nghìn nửa mét. Năm ấy hai nghìn rưỡi một khúc."
+"Vì cô Mão bán theo giá năm ấy." Cô nói. "Năm nghìn."
 
 Anh đứng im.
 
-"Năm ấy." Cô nói. "Một thằng bé mặc đồng phục Tùng Bách. Ba nghìn đồng tiền lẻ. Đứng trước giá ruy băng mười phút. Cô Mão bảo con gái thích hồng. Thằng bé bảo: *Bạn cháu không thích hồng. Bạn cháu thích đỏ. Như váy thi.*"
+"Năm ấy cô Mão chưa có sạp ở chợ Vọng Hải." Cô nói. "Cô Mão bán đồ khâu vá ở cái chợ nhỏ sau nhà hàng cạnh nhà văn hóa thành phố. Một thằng bé chạy vào. Sơ mi đen. Tóc rối. Mồ hôi. Chỉ vào cuộn nhung đỏ. *Giống màu váy bạn cháu.* Đưa sáu nghìn tiền lẻ. Cầm ruy băng chạy. Không lấy tiền thừa."
 
 Anh không nói gì.
 
 Tai anh đỏ.
 
-"Thừa năm trăm đồng." Cô nói. "Anh làm gì với năm trăm đồng?"
+Cô thò tay vào túi áo khoác lần nữa. Lấy ra một tờ tiền. Một nghìn đồng. Cũ. Mềm như vải. Đặt vào lòng bàn tay trái anh.
 
-Anh nhìn xuống. Nhìn sợi ruy băng xanh.
+"Tiền thừa của anh." Cô nói. "Cô Mão kẹp trong sổ ghi hàng mười tám năm."
 
-"Mua kẹo." Anh nói. "Kẹo me. Ở hàng nước cổng trường. Năm trăm đồng ba cái."
+Anh nhìn tờ tiền trong lòng bàn tay.
 
-"Anh ăn?"
+Mười tám năm. Anh không nhớ có tiền thừa. Anh chỉ nhớ chạy. Nhớ hành lang nhà văn hóa. Nhớ cô đứng đó, tóc xõa, sợi chun đứt trong tay. Nhớ mẹ cô cầm sợi ruy băng, nhìn nó một giây, rồi quấn ba vòng.
 
-"Anh cho em." Anh nói. "Em không lấy. Em bảo em không ăn kẹo me. Anh ăn một mình. Chua."
+"Anh làm gì với một nghìn này?" Cô hỏi.
+
+Anh nghĩ.
+
+"Mua kẹo." Anh nói. "Kẹo me. Ở hàng nước cổng trường Tùng Bách. Năm ấy một nghìn ba cái."
+
+"Bây giờ một nghìn không mua được cái nào."
+
+"Thì không mua." Anh nói. Gập tờ tiền lại. Cất vào túi áo trong. Cạnh những tờ giấy học trò kẻ ô. "Giữ."
 
 Cô bật cười.
 
@@ -364,15 +370,15 @@ Cất vào túi quần. Cạnh chiếc khăn lau sàn gấp tư.
 
 Ba giờ chiều. Phòng tập số ba.
 
-*Nhịp Thứ Tư.* Trang bốn mươi.
+*Nhịp Thứ Tư.* Trang năm. Mười hai trang bút chì của cô Tố Nga.
 
 Thầy Nghiêm đứng cạnh thanh vịn. Ngày đầu tiên làm huấn luyện viên trưởng. Tay chắp sau lưng. Như mọi ngày.
 
-Cô Tố Nga ngồi ghế gỗ dưới ô cửa sổ thứ sáu. Cuốn sổ bìa đen mở trên đùi.
+Cô Tố Nga ngồi ghế gỗ dưới ô cửa sổ thứ sáu. Mười hai trang giấy kẻ ô mở trên đùi.
 
 "Bịt mắt." Cô Tố Nga đọc. "Tìm nhau."
 
-"Không khăn." Thầy Nghiêm nói. "Cô Quan bảo bỏ khăn."
+"Không dải nhung." Thầy Nghiêm nói. "Cô Quan bảo bỏ."
 
 "Nhắm mắt." Cô Tố Nga nói.
 
@@ -384,13 +390,13 @@ Anh nhắm mắt.
 
 Anh bước.
 
-Năm mười lăm tuổi, ở phòng áp mái, anh bịt mắt bằng khăn tay chữ *T*. Phòng ba mét. Bước ba bước là chạm tường. Bước hai bước là chạm cô.
+Năm mười lăm tuổi, ở Hải Âu, anh bịt mắt bằng dải nhung đen mẹ cô may. Thầy Bạch dạy từ năm lớp chín: không nhìn, chỉ nghe, chỉ cảm. Năm ấy anh nghe hơi thở cô.
 
 Phòng tập số ba mười hai mét. Không có tường gần.
 
 Anh bước. Một. Hai. Ba.
 
-Không nghe tiếng chân cô. Cô đi chân trần. Cô Tố Nga bảo: *Trang bốn mươi. Chân trần. Năm mười lăm tuổi hai đứa đi chân trần trên sàn phòng áp mái.*
+Không nghe tiếng chân cô. Cô đi chân trần. Cô Tố Nga bảo: *Trang năm. Chân trần. Năm mười lăm tuổi hai đứa đi chân trần trên sàn Hải Âu.*
 
 Bốn. Năm.
 
@@ -436,11 +442,11 @@ Cô nhìn tay trái mình.
 
 Thầy Nghiêm đứng ở thanh vịn. Không động đậy.
 
-Cô Tố Nga ngồi trên ghế gỗ. Cầm bút chì. Viết vào lề cuốn sổ bìa đen. Trang bốn mươi.
+Cô Tố Nga ngồi trên ghế gỗ. Cầm bút chì. Viết vào lề trang năm. Rồi mở cuốn sổ bìa đen anh để trên ghế. Lật đến trang một trăm bốn mươi hai. Viết thêm một dòng bên dưới.
 
 Lần đầu tiên có chữ người thứ ba trong cuốn sổ.
 
-*Năm 26 tuổi: không khăn. Nhắm mắt. Đi theo tiếng nhẫn. — Quan.*
+*Năm 26 tuổi: không dải nhung. Nhắm mắt. Đi theo tiếng nhẫn. — Quan.*
 
 ---
 

@@ -4,7 +4,7 @@ Ngày năm tháng Mười Hai. Sáu giờ sáng.
 
 Hai chiếc áo cảm biến. Đen. Bó sát. Một dải điện cực chạy ngang ngực. Một dải chạy dọc sống lưng. Mùa đông năm ngoái, ở trại tập huấn Vân Đình, cô mặc chiếc áo này mười bốn ngày. Nhảy với Diệc Thần. Chín phân.
 
-Ôn Chi Hạ kéo khóa áo. Dải điện cực sau lưng chạy ngang qua vết sẹo bốn phân. Lạnh.
+Ôn Chi Hạ kéo khóa áo. Dải điện cực sau lưng chạy ngang qua vết sẹo mười một phân. Lạnh.
 
 Tiến sĩ Hạ Mẫn ngồi trên ghế nhựa cạnh giá giày. Máy tính xách tay trên đùi. Màn hình chia hai. Hai đường đồ thị. Một màu xanh. Một màu đỏ.
 

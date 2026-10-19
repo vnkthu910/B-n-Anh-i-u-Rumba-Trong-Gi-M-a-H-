@@ -176,65 +176,59 @@ Chưa ai nói chia tay.
 
 Ngày bốn tháng Chín. Ba giờ chiều. Phòng tập số ba.
 
-Cô Tố Nga ngồi trên ghế gỗ dưới ô cửa sổ thứ sáu. Không cầm bản biên đạo của mình.
+Cô Tố Nga ngồi trên ghế gỗ dưới ô cửa sổ thứ sáu. Trên đùi, hai thứ.
 
-Cầm một cuốn sổ bìa đen. Một trăm bốn mươi hai trang. Gáy đã sờn. Mép giấy ngả vàng.
+Một cuốn sổ bìa da đen. Gáy bong một đoạn, dán băng dính. Giấy ngả màu, mép quăn. Năm năm anh viết ở Aldmere. Đoạn kết. Trang nào cũng bị gạch. Trừ trang một trăm mười hai, *không có đoạn kết, mãi mãi*, và ba trang cuối.
 
-Anh đưa cho cô Tố Nga sáng nay. Cô nhìn anh đưa. Không nói gì. Mười một năm, ngoài hai người, chỉ cô Tuệ từng xem vài trang. Qua ảnh chụp gửi từ Aldmere.
+Một tập giấy kẻ ô mới. Bút chì. Mười hai trang. Chữ cô Tố Nga. Nghiêng. Nhỏ.
 
-Cô Tố Nga đọc. Hai tiếng. Không ngẩng lên.
+Hai tuần trước, cô Tố Nga hỏi: *Bản biên đạo gốc năm mười lăm tuổi đâu?* Hai người nhìn nhau. *Không có ạ. Năm ấy bọn em không viết. Nhớ.* Cô Tố Nga không nói gì. Bật máy quay. Bắt hai người nhảy phần đầu bài *Nhịp Thứ Tư* từ trí nhớ. Mười lần. Rồi về phòng biên đạo, ngồi đến hai giờ sáng, chép lại từng bước. Mười hai trang.
 
-Trang một. *Nhịp Thứ Tư. Hai góc sàn. Đi về phía nhau.* Chữ anh năm mười lăm tuổi. Nghiêng. Vụng.
+Bây giờ cô Tố Nga đặt mười hai trang ấy cạnh cuốn sổ bìa đen.
 
-Trang hai mươi. *Bến phà cũ. Ba lần siết tay.*
+Trang một, chữ cô Tố Nga: *Nhịp Thứ Tư. Hai góc sàn. Nữ góc trái. Nam góc phải. Đi về phía nhau. Gặp nhau ở giữa. Một vòng xoay. Chạm tay. Nhịp chờ. Giẫm chân (cố tình).*
 
-Trang bốn mươi. *Bịt mắt. Tìm nhau.*
+Trang ba: *Bến phà cũ. Ba lần siết tay.*
 
-Trang sáu mươi. *Uốn lưng.* Bên cạnh, chữ cô năm mười lăm tuổi. Lệch. *Chín mươi độ. Hạ làm được.*
+Trang năm: *Bịt mắt. Tìm nhau.*
 
-Trang chín mươi. *Ngã rẽ. Buông tay. Lùi về hai góc. Quay lưng. Chờ.*
+Trang bảy: *Uốn lưng.* Bên cạnh, cô Tố Nga ghi: *Năm 15 tuổi: tóc chạm sàn.*
 
-Trang một trăm bốn mươi. Chữ anh. Không phải năm mười lăm tuổi. Thẳng hơn. *Lưng chạm lưng bốn nhịp. Cùng quay lại. Đứng cạnh nhau nhìn gương. Nhịp một. Cùng bước.*
+Trang mười hai: *Ngã rẽ. Buông tay. Lùi về hai góc. Quay lưng. Chờ.*
 
-Trang một trăm bốn mươi mốt. Chữ cô. *Rồi hai người đếm lại từ đầu. Hai, ba, bốn, một.*
+Rồi cuốn sổ bìa đen. Trang một trăm bốn mươi, chữ anh: *Lưng chạm lưng bốn nhịp. Cùng quay lại. Đứng cạnh nhau nhìn gương. Nhịp một. Cùng bước.* Trang một trăm bốn mươi mốt, chữ cô: *Rồi hai người đếm lại từ đầu. Hai, ba, bốn, một.* Trang một trăm bốn mươi hai: *Nhịp Thứ Tư. Phần sau. Lần thứ nhất.*
 
-Trang một trăm bốn mươi hai. *Nhịp Thứ Tư. Phần sau. Lần thứ nhất.*
-
-Cô Tố Nga gập cuốn sổ. Đặt lên đùi. Nhìn ra ô cửa sổ thứ sáu.
-
-Rất lâu.
+Mười một năm, ngoài hai người, chỉ cô Tuệ từng xem vài trang cuốn sổ ấy. Qua ảnh chụp gửi từ Aldmere.
 
 "Mười lăm tuổi." Cô Tố Nga nói.
 
 "Vâng."
 
-"Tôi mười lăm tuổi biên đạo được ba mươi hai nhịp." Cô Tố Nga nói. "Hai đứa biên đạo một trăm bốn mươi trang."
+"Tôi mười lăm tuổi biên đạo được ba mươi hai nhịp." Cô Tố Nga nói. "Hai đứa biên đạo cả một bài. Không viết một dòng. Mười một năm vẫn nhớ từng bước."
 
 "Bài dở dang ạ."
 
-"Không dở dang." Cô Tố Nga nói. "Đến trang chín mươi là hết. Ngã rẽ. Đấy là kết. Kết buồn. Hai đứa mười lăm tuổi viết một cái kết buồn."
+"Không dở dang." Cô Tố Nga nói. "Đến ngã rẽ là hết. Đấy là kết. Kết buồn. Hai đứa mười lăm tuổi nhảy một cái kết buồn. Rồi một đứa viết năm năm, một trăm mười một trang gạch, để tìm cái kết khác."
 
 Cô đứng giữa phòng tập. Không nói gì.
-
-Năm mười sáu tuổi, hai người dừng ở ngã rẽ. Đêm nào cũng dừng ở ngã rẽ. Bà nội nghe ba năm.
 
 "Tôi không sửa." Cô Tố Nga nói.
 
 "Cô…"
 
-"Một trăm bốn mươi hai trang." Cô Tố Nga nói. "Tôi không sửa một chữ. Chỉ sửa hai chỗ. Uốn lưng: bốn mươi lăm độ, nhìn nhau. Cô Tuệ sửa rồi. Bịt mắt: bỏ khăn."
+"Mười hai trang của hai đứa. Ba trang cuối của cuốn sổ." Cô Tố Nga nói. "Tôi không sửa một bước. Chỉ sửa hai chỗ. Uốn lưng: bốn mươi lăm độ, nhìn nhau. Cô Tuệ sửa rồi. Bịt mắt: bỏ dải nhung."
 
-"Bỏ khăn ạ?"
+"Bỏ dải nhung ạ?"
 
-"Năm mười lăm tuổi hai đứa bịt mắt bằng khăn." Cô Tố Nga nói. "Đọc trang bốn mươi. Khăn tay chữ T."
+"Năm mười lăm tuổi hai đứa bịt mắt bằng dải nhung đen." Cô Tố Nga nói. "Mẹ cô may. Thầy Bạch phát."
 
 "Vâng."
 
-"Bây giờ không cần khăn." Cô Tố Nga nói. "Nhắm mắt."
+"Bây giờ không cần dải nhung." Cô Tố Nga nói. "Nhắm mắt."
 
-Cô Tố Nga đứng dậy. Đưa cuốn sổ bìa đen lại cho anh.
+Cô Tố Nga đứng dậy. Đưa cuốn sổ bìa đen lại cho anh. Giữ mười hai trang của mình.
 
-"Chạy." Cô Tố Nga nói. "Từ trang một. Không có nhạc. Tôi đếm."
+"Chạy." Cô Tố Nga nói. "Từ trang một của tôi. Không có nhạc. Tôi đếm."
 
 Cô đi về góc phía đông. Anh đi về góc phía tây.
 
@@ -242,7 +236,7 @@ Hai góc sàn. Mười hai mét.
 
 Cô quay lại. Nhìn anh qua mười hai mét.
 
-Mười một năm trước, ở phòng áp mái nhà họ Tạ, sàn gỗ ba mét. Không có góc nào cách nhau mười hai mét.
+Mười một năm trước, ở Hải Âu, hai góc sàn cách nhau tám mét. Cô ở góc bên trái. Anh ở góc bên phải. Bây giờ vẫn thế.
 
 "Hai." Cô Tố Nga đếm. "Ba. Bốn."
 
@@ -274,7 +268,7 @@ Cô Tố Nga không đếm tiếp.
 
 Cô Tố Nga nhìn hai người đứng giữa phòng. Tay chạm tay. Nhịp chờ.
 
-"Ba tháng." Cô Tố Nga nói. "Tôi cho hai đứa tập từ trang mười đến trang một trăm bốn mươi hai. Mỗi ngày. Bỏ chỗ giẫm chân. Bỏ đoạn đầu. Ngày sáu tháng Mười Hai mới nhảy từ trang một."
+"Ba tháng." Cô Tố Nga nói. "Tôi cho hai đứa tập từ trang ba của tôi đến trang một trăm bốn mươi hai của cuốn sổ. Mỗi ngày. Bỏ chỗ giẫm chân. Bỏ đoạn đầu. Ngày sáu tháng Mười Hai mới nhảy từ trang một."
 
 "Vâng."
 
@@ -318,23 +312,27 @@ Cô Mão không đứng dậy lấy ngay. Nhìn cô.
 
 Cô đứng im.
 
-"Một thằng bé đến đây." Cô Mão nói. "Mặc đồng phục Tùng Bách. Tay cầm tiền lẻ. Ba nghìn đồng. Hỏi mua ruy băng."
+"Năm ấy tôi chưa có sạp ở chợ Vọng Hải." Cô Mão nói. "Tôi bán đồ khâu vá ở cái chợ nhỏ sau nhà hàng, cạnh nhà văn hóa thành phố. Một cái bàn. Kim chỉ. Cúc áo. Ruy băng."
 
 Cô không thở.
 
-"Tôi hỏi: *Mua ruy băng làm gì?*" Cô Mão nói. "Nó bảo: *Tặng bạn. Bạn cháu buộc tóc bằng chun đen. Chun đen xấu.*"
+"Hôm ấy có giải thiếu niên ở nhà văn hóa." Cô Mão nói. "Một thằng bé chạy vào chợ. Sơ mi đen. Quần âu đen. Tóc chải bóng mà rối bù. Mồ hôi ròng ròng. Hỏi tôi có chun buộc tóc không."
 
 "Cô…"
 
-"Tôi hỏi: *Màu gì?*" Cô Mão nói. "Nó đứng trước giá ruy băng mười phút. Rồi chỉ vào cuộn đỏ. Tôi bảo: *Đỏ à? Con gái thích hồng.* Nó bảo: *Bạn cháu không thích hồng. Bạn cháu thích đỏ. Như váy thi.*"
+"Tôi không có chun." Cô Mão nói. "Tôi có ruy băng. Nó đứng trước bàn tôi. Chỉ vào cuộn nhung đỏ. Tôi bảo: *Đỏ à? Con gái thích hồng.* Nó bảo: *Màu này. Giống màu váy bạn cháu.*"
 
-Cô đứng trước sạp vải. Chiếc nhẫn mỏng trên ngón áp út. Sợi ruy băng đỏ trên cổ tay trái. Bạc màu ở mặt ngoài. Mặt trong vẫn đỏ.
+Cô đứng trước sạp vải. Chiếc nhẫn mỏng trên ngón áp út. Sợi ruy băng nhung đỏ trên cổ tay trái. Bạc màu ở mặt ngoài. Bốn chỗ khâu. Mặt trong vẫn đỏ.
 
-"Ba nghìn đồng." Cô Mão nói. "Không đủ. Ruy băng lụa năm ấy năm nghìn một mét. Nó cần nửa mét. Hai nghìn rưỡi. Đủ. Thừa năm trăm."
+"Năm nghìn." Cô Mão nói. "Tôi ghi giá vào mẩu giấy dán ở đầu ruy băng. Nó trả sáu nghìn tiền lẻ. Tiền ăn quà bà nội cho, để dành ba tuần. Tôi trả lại một nghìn. Nó cầm ruy băng chạy. Không cầm tiền thừa. Tôi gọi. Nó không nghe."
 
 Cô Mão nhìn sợi ruy băng trên cổ tay cô.
 
-"Cuộn ấy." Cô Mão nói. "Tôi bán hết từ mười năm trước. Không nhập lại. Không có ai mua màu đỏ ấy nữa."
+"Một nghìn ấy." Cô Mão nói. "Tôi kẹp vào sổ ghi hàng. Mười tám năm. Năm tôi chuyển về chợ Vọng Hải, tôi vẫn mang theo cái sổ ấy."
+
+Cô Mão mở ngăn kéo bàn cắt. Lấy ra một cuốn sổ bìa cứng đã nát mép. Lật đến một trang. Một tờ tiền một nghìn đồng cũ. Mềm như vải. Kẹp ở đó.
+
+"Cuộn nhung đỏ ấy." Cô Mão nói. "Tôi bán hết từ lâu. Không nhập lại."
 
 Cô Mão đứng dậy. Đi đến giá ruy băng. Lấy cuộn xanh dương ở góc.
 
@@ -350,11 +348,15 @@ Gói vào giấy báo.
 
 Cô nhìn cô Mão.
 
-Ruy băng lụa bây giờ không phải năm nghìn nửa mét. Cô biết giá. Cô mặc cả ba năm ở chợ Ngân Hạnh. Nửa mét ruy băng lụa bây giờ ba mươi nghìn.
+Ruy băng bây giờ không phải năm nghìn nửa mét. Cô biết giá. Cô mặc cả ba năm ở chợ Ngân Hạnh. Nửa mét ruy băng lụa bây giờ ba mươi nghìn.
 
 "Năm nghìn ạ?"
 
-"Năm nghìn." Cô Mão nói. "Giá năm ấy. Tôi bán cho nó hai nghìn rưỡi. Cô mua nửa mét thì gấp đôi. Năm nghìn."
+"Năm nghìn." Cô Mão nói. "Giá năm ấy. Cô trả năm nghìn. Tôi trả lại cô cái này."
+
+Cô Mão rút tờ một nghìn đồng cũ ra khỏi cuốn sổ. Đặt vào tay cô.
+
+"Tiền thừa." Cô Mão nói. "Của nó. Mười tám năm. Cô cầm về."
 
 Cô đưa năm nghìn.
 

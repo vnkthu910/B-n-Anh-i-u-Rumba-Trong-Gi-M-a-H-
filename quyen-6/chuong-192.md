@@ -80,41 +80,43 @@ Mẹ cô không trả lời. Tay vẫn khâu. Miếng lụa trên đùi mẹ cô
 
 Lăng đâm kim. Kéo chỉ. Mũi thứ nhất.
 
-"Hôm ấy ở quán nước." Lăng nói. "Tôi nói với chị: con trai tôi có thư mời đi Estherwyn. Năm năm. Học bổng toàn phần. Con gái chị gãy xương sống. Nếu con gái chị ở lại, con trai tôi sẽ không đi."
+"Hôm ấy ở quán nước." Lăng nói. "Tôi kể chị nghe chuyện của tôi. Năm mười bảy tuổi. Thư mời đi Aldmere. Trịnh Quân đứt dây chằng gối. Tôi từ chối thư mời. Ngồi ở phòng tập bệnh viện mỗi chiều. Bốn năm. Rồi anh ấy đi. Để lại một lá thư."
 
 "Ừ. Tôi nhớ."
 
-"Tôi nói với chị: tôi xin chị." Lăng nói. "Tôi chưa xin ai bao giờ. Tôi xin chị bảo con bé đi."
+"Rồi tôi bảo chị: thầy Lucien giữ chỗ cho thằng Phong đến ba mươi mốt tháng Bảy." Lăng nói. "Tôi không xin chị. Tôi không bảo chị bảo con bé đi. Tôi chỉ kể."
 
 "Ừ."
 
+"Tháng Tư năm trước đó, tôi cũng chỉ kể với con bé." Lăng nói. "Ở Hải Âu. Kể chuyện của tôi. Đưa nó xem một tờ giấy. Rồi tôi bảo: *Nó sẽ chờ con.*"
+
 Mũi thứ hai.
 
-"Cái tôi không nói." Lăng nói. Dừng kim. "Năm tôi mười bảy tuổi. Tôi cũng có thư mời đi Aldmere. Tôi không đi. Vì Trịnh Quân không có thư mời. Tôi ở lại. Rồi anh ấy đứt dây chằng gối. Bỏ đi. Tôi chờ anh ấy bốn năm. Anh ấy không về."
+"Cái tôi không nói." Lăng nói. Dừng kim. "Hôm ấy ở quán nước Thạch Kiều. Tôi nhìn chị. Tôi không nghĩ đến con gái chị. Tôi nghĩ đến tôi năm mười bảy tuổi. Ngồi ở phòng tập bệnh viện. Chờ."
 
 Mẹ cô dừng tay.
 
-"Tôi ngồi ở quán nước Thạch Kiều." Lăng nói. "Tôi nhìn chị. Tôi không nghĩ đến con trai tôi. Tôi nghĩ đến tôi năm mười bảy tuổi. Tôi nghĩ: con bé kia sẽ làm điều tôi đã làm. Ở lại. Chờ. Rồi người kia đi. Rồi con bé kia ba mươi tuổi ngồi trước tấm ảnh cầm cúp."
+"Tôi nghĩ: con trai tôi sẽ làm điều tôi đã làm." Lăng nói. "Ở lại. Chờ con bé. Bốn năm. Năm năm. Rồi con bé sẽ thấy mình là người đã cướp mất Estherwyn của nó. Rồi con bé sẽ đi. Như Trịnh Quân. Để lại một lá thư."
 
 Góc sau sạp vải im lặng.
 
 Ngoài kia, cô Mão cắt vải. Tiếng kéo. Tiếng người mặc cả ở sạp bên.
 
-"Tôi không cứu con trai tôi." Lăng nói. "Tôi tưởng tôi cứu con bé. Khỏi tôi."
+"Tôi kể chuyện của tôi." Lăng nói. "Tôi biết chị nghe thì chị hiểu. Tôi biết con bé nghe thì con bé đi. Tôi biết. Tôi vẫn kể."
 
 Mẹ cô ngồi im.
 
 Rất lâu.
 
-"Chị sai." Mẹ cô nói.
+"Chị không bảo." Mẹ cô nói. "Chị kể. Kể còn nặng hơn bảo."
 
 "Tôi biết."
 
-"Không phải sai vì bảo nó đi." Mẹ cô nói. "Sai vì chị tưởng nó là chị."
+"Chị sai." Mẹ cô nói. "Không phải sai vì kể. Sai vì chị tưởng thằng Phong là chị. Tưởng con tôi là Trịnh Quân."
 
 Lăng ngẩng lên.
 
-"Nó không phải chị." Mẹ cô nói. "Nó là con tôi. Con tôi không ngồi trước tấm ảnh cầm cúp. Con tôi ngồi trước sạp vải mặc cả từng mớ rau."
+"Thằng Phong không phải chị." Mẹ cô nói. "Con tôi không phải Trịnh Quân. Con tôi không viết thư rồi đi. Con tôi đi không nói một câu. Ngu hơn. Nhưng nó không bỏ ai."
 
 Lăng nhìn mẹ cô.
 
@@ -130,7 +132,7 @@ Lăng nhìn mẹ cô.
 
 Mẹ cô đặt kim xuống.
 
-"Nửa kia chị sai." Mẹ cô nói. "Chị bảo con bé phải đi không nói một câu. Tôi nghe theo. Tôi bảo con tôi đi không nói một câu. Tôi sai ở nửa ấy. Năm năm con tôi không nói câu ấy. Năm năm."
+"Nửa kia tôi sai." Mẹ cô nói. "Con bé bảo tôi nó sẽ nói với thằng Phong là nó muốn đổi bạn nhảy. Tôi biết nó nói dối. Tôi không cản. Tôi nghĩ: không nói thì thằng bé mới đi được. Tôi sai ở nửa ấy. Năm năm con tôi không nói câu thật. Năm năm."
 
 Lăng đặt kim xuống.
 
@@ -140,7 +142,7 @@ Hai bà mẹ ngồi đối diện nhau trong góc sau sạp vải. Hai miếng l
 
 "Ừ."
 
-"Tôi xin lỗi." Lăng nói. "Lần trước tôi xin lỗi vì tôi bảo con bé đi. Lần này tôi xin lỗi vì tôi tưởng con bé là tôi."
+"Tôi xin lỗi." Lăng nói. "Lần trước tôi xin lỗi vì tôi kể. Lần này tôi xin lỗi vì tôi tưởng con trai tôi là tôi."
 
 Mẹ cô nhìn Lăng.
 
@@ -186,7 +188,7 @@ Lăng ngẩng lên.
 
 Lăng nhìn góc bảng tên. Ba mũi gút. Thẳng.
 
-Lăng không khóc. Lăng không bao giờ khóc trước mặt người khác. Hai mươi sáu năm, anh chưa thấy mẹ khóc lần nào. Bố anh kể một lần: năm anh mười bảy tuổi, sau khi anh lên máy bay đi Aldmere, mẹ ngồi một mình trong phòng tập Liên đoàn thành phố đến tối. Bố anh đứng ngoài cửa. Không vào.
+Lăng không khóc. Lăng không bao giờ khóc trước mặt người khác. Hai mươi sáu năm, anh thấy mẹ khóc đúng một lần. Mùa đông năm anh hai mươi ba tuổi, trong phòng tập số ba, năm chiếc ghế gỗ xếp thành vòng tròn, lúc mẹ kể về Estherwyn, về Trịnh Quân, về chuyến xe đi Hải Âu. Mẹ cô cũng ngồi trong vòng tròn ấy. Nước mắt chảy xuống mà giọng mẹ không run. Một lần. Chưa bao giờ có lần thứ hai.
 
 Lăng không khóc.
 

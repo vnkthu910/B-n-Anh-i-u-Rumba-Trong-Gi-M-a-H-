@@ -174,7 +174,7 @@ Lần này không đợi ở cổng. Cô ta có giấy của ban giám đốc tr
 
 Cô ta lướt màn hình.
 
-"Hãng đồng hồ Sel Aurane, hãng đồng hồ lâu đời của Estherwyn, muốn anh làm gương mặt đại diện khu vực châu Á. Hợp đồng một năm. Con số ở đây."
+"Hãng đồng hồ Sel Aurane, hãng đồng hồ lâu đời của Estherwyn, muốn anh làm gương mặt đại diện khu vực phía Đông. Hợp đồng một năm. Con số ở đây."
 
 Kỳ Phong nhìn con số. Cán bộ truyền thông của liên đoàn ngồi bên cạnh anh, khẽ hít một hơi.
 
@@ -190,7 +190,7 @@ Kỳ Phong nhìn cô ta.
 
 Cô ta ngừng lại.
 
-"Nhưng tôi phải nói với anh một chuyện. Sel Aurane có một gương mặt đại diện nữ ở khu vực châu Á. Ký từ năm ngoái."
+"Nhưng tôi phải nói với anh một chuyện. Sel Aurane có một gương mặt đại diện nữ ở khu vực phía Đông. Ký từ năm ngoái."
 
 "Ai?"
 

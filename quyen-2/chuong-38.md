@@ -232,7 +232,7 @@ Không một vết nứt.
 
 Chín giờ tối, bà nội gọi video.
 
-Màn hình rung rung một lúc mới hiện ra gương mặt bà, gần quá, chỉ thấy một con mắt và nửa cái mũi. Bà nội tám mươi mốt tuổi, vẫn chưa học được cách cầm điện thoại cho đúng.
+Màn hình rung rung một lúc mới hiện ra gương mặt bà, gần quá, chỉ thấy một con mắt và nửa cái mũi. Bà nội tám mươi ba tuổi, vẫn chưa học được cách cầm điện thoại cho đúng.
 
 "Bà ơi, bà cầm xa ra một chút."
 
