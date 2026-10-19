@@ -252,7 +252,7 @@ Thầy Lucien vẫy tay. Anh đi đến. Cô đi theo.
 
 Thầy Lucien rút từ túi áo khoác một cuốn sổ nhỏ. Bìa da nâu. Mép sờn. Mở ra một trang. Đưa cho anh.
 
-Anh đọc. Chữ thầy Lucien. Tiếng Estherwyn. Mực xanh đã phai. Ngày tháng tám năm trước.
+Anh đọc. Chữ thầy Lucien. Tiếng Estherwyn. Mực xanh đã phai. Ngày tháng chín năm trước.
 
 *Tạ Kỳ Phong. 17 tuổi. Có một người cậu ấy bỏ lại. Nếu tìm được người ấy…*
 

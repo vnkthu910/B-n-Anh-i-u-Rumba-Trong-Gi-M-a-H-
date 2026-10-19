@@ -26,7 +26,7 @@ Mẹ cô im lặng một lúc.
 
 Rồi mẹ cô bật cười. Khẽ. Như ở chợ phiên khi bà cụ bán hoa cong nửa ngón út.
 
-"Mười bảy năm." Mẹ cô nói. "Cái áo sơ mi trắng ấy. Năm lớp ba. Nó đi học về, cổ áo dính mực đỏ. Không phải mực. Ruy băng phai màu. Thằng bé nhà chị cho nó một sợi ruy băng đỏ. Nó buộc vào cúc áo. Cả ngày. Ruy băng phai lên cổ áo."
+"Mười tám năm." Mẹ cô nói. "Cái áo sơ mi trắng ấy. Năm lớp ba. Nó đi học về, cổ áo dính mực đỏ. Không phải mực. Ruy băng phai màu. Thằng bé nhà chị cho nó một sợi ruy băng đỏ. Nó buộc vào cúc áo. Cả ngày. Ruy băng phai lên cổ áo."
 
 Cô đứng im.
 

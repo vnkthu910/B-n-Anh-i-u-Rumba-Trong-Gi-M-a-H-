@@ -34,7 +34,7 @@ Tài liệu này tóm tắt toàn bộ phần đã viết (Quyển 1 → Quyển
 | 2 | Rumba đối đầu | 37–76 | Xong, đã review, có `Quyen-2-Rumba-doi-dau.docx` |
 | 3 | Nhịp thứ tư chưa có kết | 77–116 | Xong, đã review, có `Quyen-3-Nhip-thu-tu-chua-co-ket.docx` |
 | 4 | Ba centimet | 117–156 | Xong, đã review, có `Quyen-4-Ba-centimet.docx` |
-| 5 | Rumba tĩnh | 157–190 | Xong (chưa review, chưa xuất docx) |
+| 5 | Rumba tĩnh | 157–190 | Xong, đã review, có `Quyen-5-Rumba-tinh.docx` |
 | 6 | Váy cưới | 191–212 | **Đang viết, xong đến chương 194.** Chương tiếp theo: **195 (POV Ôn Chi Hạ)** |
 | Phiên ngoại | | 8 chương | Chưa viết (chỉ ở đây mới được dùng POV nhân vật phụ) |
 

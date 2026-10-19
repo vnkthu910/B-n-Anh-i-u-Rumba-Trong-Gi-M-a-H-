@@ -90,7 +90,7 @@ Lăng đâm kim. Kéo chỉ. Mũi thứ nhất.
 
 Mũi thứ hai.
 
-"Cái tôi không nói." Lăng nói. Dừng kim. "Năm tôi mười bảy tuổi. Tôi cũng có thư mời đi Aldmere. Tôi không đi. Vì Trịnh Quân không có thư mời. Tôi ở lại chờ. Bốn năm. Anh ấy đi."
+"Cái tôi không nói." Lăng nói. Dừng kim. "Năm tôi mười bảy tuổi. Tôi cũng có thư mời đi Aldmere. Tôi không đi. Vì Trịnh Quân không có thư mời. Tôi ở lại. Rồi anh ấy đứt dây chằng gối. Bỏ đi. Tôi chờ anh ấy bốn năm. Anh ấy không về."
 
 Mẹ cô dừng tay.
 

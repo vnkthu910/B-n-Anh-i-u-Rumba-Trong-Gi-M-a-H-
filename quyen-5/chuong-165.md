@@ -76,7 +76,7 @@ Lăng đi đến chiếc đàn piano phủ khăn nhung. Ngồi xuống chiếc g
 
 Cô đứng giữa sàn. Nhìn Lăng.
 
-"Năm mẹ hai mươi lăm tuổi." Lăng nói. "Mẹ chờ một người bốn năm. Người ấy không về. Mẹ nhảy Waltz với người khác. Mỗi lần đi hết một vòng sàn về chỗ cũ, mẹ nhìn ra cửa. Nghĩ: mình về được, sao người ta không về."
+"Năm mẹ hai mươi lăm tuổi." Lăng nói. "Mẹ đã chờ một người gần bốn năm. Người ấy không về. Mẹ nhảy Waltz với người khác. Mỗi lần đi hết một vòng sàn về chỗ cũ, mẹ nhìn ra cửa. Nghĩ: mình về được, sao người ta không về."
 
 Phòng tập im lặng. Ngoài cửa sổ, Ngân Sơn bắt đầu ồn. Tiếng xe máy. Tiếng còi.
 
